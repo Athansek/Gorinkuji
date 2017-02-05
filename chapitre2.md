@@ -23,9 +23,24 @@ Dainichi est le Hôsshin fondamental. Il entre dans le Samâdhi «Pouvoir imméd
 Ensuite Dainichi Nyôrai entre dans le Samâdhi « Jeu adamantin qui détruit les quatre démons» et il entonne les vers sur la destruction des quatre démons  qui sauve des renaissances dans le Rokudô et fait naître la Sapience-omnisciente : 
 >« NOMAKU SANMANDA BODANAN AK BI RA UN KYAM». 
 
-*T2514_.79.0012b09 / 9* 
+*T2514_.79.0012b09 / 9*   
 Ces cinq syllabes sont les mots du  mantra qui détruit les quatre démons. La première partie signifie prendre refuge dans les trois joyaux. L’«A» signifie  «Action»  et «Sans-naissance fondamental». Les deux points indiquent la purification, la destruction des quatre démons et de la Souffrance. Mais ces points seront approfondis plus tard.  
 A la manière de la Terre, le «A» fait émerger toutes choses, la Terre du signe «A» fait émerger la myriade des pratiques des six Paramita. «Terre» signifie «Solidité». La Bodaishin est adamantine, non-régressive et se cristallisera nécessairement en une myriade de résultats propices .
 Si le pratiquant lance sa fleur elle atterrit sur la base-mentale (qui est la syllabe « A », la Bodaishin innée) et il plante la graine de l’Éveil. Si il ne subit pas de grande infortune, telles qu'une grave maladie, il atteindra rapidement l’Éveil sans supérieur. Il prendra alors le nom de « Ichijin Rin Ô ». 
 
 Ne vilipendez pas ce corps qui est le véhicule vers la Bouddhéité. Il vaut mieux médire de l'Enseignement du Shingon et le remettre en cause, que pratiquer les trois véhicules inférieurs. Alors que dire de celui qui peut lancer la fleur  et pratique avec Foi et Discipline! Voici ce que sont la  Croissance et la Maturation de l'«A».
+
+Le Syllabes «BI» exprime la notion de « Lien». Sa représentation avec la syllabe « I» est le Samâdhi sans obstructions qui est la libération inconcevable.  
+«BA» est l’Eau qui nettoie la fange des souillures,l’esprit et le corps qui pratiquent la Paramita de l’Énergie qui éloigne la distraction par la myriade des Exercices. La syllabe «BA» est l’Eau et le fait de ne pas être dissipé, c’est le parfait Océan des vertus de Dainichi.
+
+«RA» est la purification des organes des six sens, la consomption du bois impur de l’action, la purification des trasgressions et des obstructions des organes sensoriels, l'obtention du Fruit.
+
+«UN» se décompose en «HA», «Û» et «MA» comme expliqué dans le « Unjigi». Ce sont aussi les trois Accés à la Libération, Le Vent qui peut souffler les impuretés légères et lourdes. Le Vent du «HA» balaye les quatre vingt-mille impuretés et actualise le principe des quatre Nirvana. Quand ce vent des causes directes et indirectes se calme, c’est le repos et l’extase du Grand Nirvana.
+
+« KYAN » exprime l’élément Espace, Le Hôkkai qui englobe tout. l’Espace indestructible n’entrave aucun existant et permet le dévellopement. L’Espace englobe les Terres Pures et souillées et peut mener à perfection les fruits directs et indirects du sage comme du simple d’esprit.
+
+*T2514_.79.0012c02 / 10*  
+Zenmui Sanzô à dit:
+>«[...]ce mantra adamantin de cinq syllabes est le Cœur du Kongochôgyô et l'Essence du Dainichikyô, un champ de mérite sans égal et la Vertu superlative. S’il est reçu, les mérites obtenus ne peuvent être mesurés. Plus jamais il n’y aura de calamité ni d'ostacles. Les pires péchés seront éliminées et maintes vertus obtenues. Les mérites s'ammonceleront comme les nuages et le  corps, reçu des père et des mères, atteindra rapidement le grand Eveil. Le réciter une fois, vingt-et une fois ou quarante neuf fois équivaut à répéter cent-millions de fois les douze divisions du Tripitaka.»
+
+C’était le passage faisant l'éloge de ce mantra.
