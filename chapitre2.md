@@ -82,7 +82,7 @@ Au contraire, l'Enseignement trés secret des "cinq caractéristiques" et des "c
 
 La signification profonde sera expliquée plus tard.
 
-*T2514_.79.0013b10 / 14*
+*T2514_.79.0013b10 / 14*   
 Le véritable aspect de la forme et de l’esprit de tous les êtres est le Corps-de-sapience-d'égalité de Dainichi.  
 La  Matière est le rupa-Skhanda qui constitue les Cinq Roues. "Esprit" désigne l’élément Conscience qui constitue les quatre autres Skhanda.  
 Matière et Esprit sont identiques au Rokudai Hôsshin qui est la Sapience de la Nature du Hokkai.  
