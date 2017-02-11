@@ -23,7 +23,7 @@ Dainichi est le Hôsshin fondamental. Il entre dans le Samâdhi «Pouvoir imméd
 Ensuite Dainichi Nyôrai entre dans le Samâdhi « Jeu adamantin qui détruit les quatre démons» et il entonne les vers sur la destruction des quatre démons  qui sauve des renaissances dans le Rokudô et fait naître la Sapience-omnisciente : 
 >« NOMAKU SANMANDA BODANAN AK BI RA UN KYAM». 
 
-*T2514_.79.0012b09 / 9*   
+*T2514_.79.0012b09 / 9*      
 Ces cinq syllabes sont les mots du  mantra qui détruit les quatre démons. La première partie signifie prendre refuge dans les trois joyaux. L’«A» signifie  «Action»  et «Sans-naissance fondamental». Les deux points indiquent la purification, la destruction des quatre démons et de la Souffrance. Mais ces points seront approfondis plus tard.  
 A la manière de la Terre, le «A» fait émerger toutes choses, la Terre du signe «A» fait émerger la myriade des pratiques des six Paramita. «Terre» signifie «Solidité». La Bodaishin est adamantine, non-régressive et se cristallisera nécessairement en une myriade de résultats propices .
 Si le pratiquant lance sa fleur elle atterrit sur la base-mentale (qui est la syllabe « A », la Bodaishin innée) et il plante la graine de l’Éveil. Si il ne subit pas de grande infortune, telles qu'une grave maladie, il atteindra rapidement l’Éveil sans supérieur. Il prendra alors le nom de « Ichijin Rin Ô ». 
@@ -39,13 +39,13 @@ Le Syllabes «BI» exprime la notion de « Lien». Sa représentation avec la sy
 
 « KYAN » exprime l’élément Espace, Le Hôkkai qui englobe tout. l’Espace indestructible n’entrave aucun existant et permet le dévellopement. L’Espace englobe les Terres Pures et souillées et peut mener à perfection les fruits directs et indirects du sage comme du simple d’esprit.
 
-*T2514_.79.0012c02 / 10*  
+*T2514_.79.0012c02 / 10*     
 Zenmui Sanzô à dit:
 >«[...]ce mantra adamantin de cinq syllabes est le Cœur du Kongochôgyô et l'Essence du Dainichikyô, un champ de mérite sans égal et la Vertu superlative. S’il est reçu, les mérites obtenus ne peuvent être mesurés. Plus jamais il n’y aura de calamité ni d'ostacles. Les pires péchés seront éliminées et maintes vertus obtenues. Les mérites s'ammonceleront comme les nuages et le  corps, reçu des père et des mères, atteindra rapidement le grand Eveil. Le réciter une fois, vingt-et une fois ou quarante neuf fois équivaut à répéter cent-millions de fois les douze divisions du Tripitaka.»
 
 C’était le passage faisant l'éloge de ce mantra.
 
-*T2514_.79.0012c09 /11*
+*T2514_.79.0012c09 /11*   
 Voici des images des cinq éléments, des cinq Roues, du Hôkkai des six éléments, de la roue des dix mondes, du véritable aspect de l’Esprit et de la Matière de tous les êtres et de la représentation de la Bouddhéité en ce corps:
 
 ![image du monde des etres](https://github.com/Athansek/Gorinkuji/blob/master/LemondeesEtres.jpg)
@@ -55,13 +55,13 @@ Voici des images des cinq éléments, des cinq Roues, du Hôkkai des six éléme
 ![image des cinq destinées](https://github.com/Athansek/Gorinkuji/blob/master/cinqdestinées.jpg)
 ![image synthétique](https://github.com/Athansek/Gorinkuji/blob/master/synthétique.jpg)
 
-*T2514_.79.0013a13 / 12*
+*T2514_.79.0013a13 / 12*   
 Les cinq Roues ci-dessus sont dites de la couronne de la tête, du visage, du torse, du ventre et des genoux et sont désignées par rapport au corps du pratiquant.
 
 Dans le Kongôkai, la syllabe « BAN » se transforme en les Cinq Roues. Dans le Taizôkai, la syllabe « AKU » se manifeste par les Cinq Roues.   
 Il est dit que “A BA RA KA KYA” devient le Gorinsekkai. Du point de vue du pratiquant on pourrait dire que son pur esprit de foi devient les germes des cinq Roues. Cet esprit de pure Foi est pure Bodaishin. C’est cela connaître son esprit tel qu’il est. Verticalement ce sont les dix niveaux de profondeur et horizontalement l'étendue et l'infinité des manifestations de l'Esprit.
 
-*T2514_.79.0013a23 / 13*
+*T2514_.79.0013a23 / 13*    
 Quand je quittais ma province, le mauvais karma des trois poisons contrôlait mon Esprit pareil à celui du bouc. J'aurais pû dégénérer dans les 8 difficultés et les 3 voies inférieures.  
 Je connaissais les mauvais agissements de mon esprit et avais quitté le foyer d’ignorance qu'était la demeure de mes parents. Je ne cherchais plus la gloire et la célébrité et j'en vins à avoir Foi dans la myriades des ornements de mon propre Esprit. C'était alors la première étape de la connaissance de l'Esprit tel qu'il est.
 
