@@ -54,3 +54,43 @@ Voici des images des cinq éléments, des cinq Roues, du Hôkkai des six éléme
 ![image du maha mandala](https://github.com/Athansek/Gorinkuji/blob/master/MAhaman dala.jpg)
 ![image des cinq destinées](https://github.com/Athansek/Gorinkuji/blob/master/cinqdestinées.jpg)
 ![image synthétique](https://github.com/Athansek/Gorinkuji/blob/master/synthétique.jpg)
+
+*T2514_.79.0013a13 / 12*
+Les cinq Roues ci-dessus sont dites de la couronne de la tête, du visage, du torse, du ventre et des genoux et sont désignées par rapport au corps du pratiquant.
+
+Dans le Kongôkai, la syllabe « BAN » se transforme en les Cinq Roues. Dans le Taizôkai, la syllabe « AKU » se manifeste par les Cinq Roues.   
+Il est dit que “A BA RA KA KYA” devient le Gorinsekkai. Du point de vue du pratiquant on pourrait dire que son pur esprit de foi devient les germes des cinq Roues. Cet esprit de pure Foi est pure Bodaishin. C’est cela connaître son esprit tel qu’il est. Verticalement ce sont les dix niveaux de profondeur et horizontalement l'étendue et l'infinité des manifestations de l'Esprit.
+
+*T2514_.79.0013a23 / 13*
+Quand je quittais ma province, le mauvais karma des trois poisons contrôlait mon Esprit pareil à celui du bouc. J'aurais pû dégénérer dans les 8 difficultés et les 3 voies inférieures.  
+Je connaissais les mauvais agissements de mon esprit et avais quitté le foyer d’ignorance qu'était la demeure de mes parents. Je ne cherchais plus la gloire et la célébrité et j'en vins à avoir Foi dans la myriades des ornements de mon propre Esprit. C'était alors la première étape de la connaissance de l'Esprit tel qu'il est.
+
+Comme Chou Ch’u qui se tenait à l’écart des trois dangers, ou Ajatashatru qui regrettait les trois mauvaises actions, je compris le principe du jeûne et de la modération. Je pratiquais fréquemment les huit abstinences et redoublais mes vœux pour obtenir le succès.
+
+Nonobstant la pourpre du Shishinden, qui était la masure héritée des vertus de ma précédente vie, j'en vins à observer la quintuple sphère des perceptions externes agréables et à les trouver tout à fait dépalisantes . Ainsi je franchis la deuxième étape de la connaissance de l'Esprit tel qu'il est.
+
+La haute plateforme du premier dhyana m'étaient devenues l'objet d'une fierté passée. J'y avait vécu la joie d'être separé de mon Soi naturel, cette sensation ne s'est jamais arrêtée, c'est ainsi que j'ai vraiment su que mon Esprit est enfantin.
+J'ai ensuite compris graduellement que ce monde est une maison de bois en flamme. Je somnolais dans la chambre des Shômon et des Engaku. Je compris finalement que cet état étaint l'extinction mineure du véhicule inférieur et que je n'avais eu que le goût de la vacuité des Êtres.
+
+Dans les sphères de "l’Esprit-dédié-aux-autres" et de l'"Arrêt des verbalisations" et je me suis rendu compte que ces écoles postulent différentes natures d'Humains. 
+
+La tradition de la Bodaishin-jamais-née n'arrête que les délibérations au sujet de la vacuité, ainsi ais-je pris conscience des maladies nommées « Existence » et « Vacuité ». Alors je me suis empressé de laisser derrière moi les trois grands éons. Mais cela équivalait à attendre qu'un rocher s'érode jusqu'à devenir poussière ou qu'un tas de graines de moutarde soit complètement dispersé.
+
+L’Eternel Buddha du Myôho Renge Kyô, démontrait son origine il y’ a cinq cent grands éons de cela et celui du Kegon Kyô , ne prêchait pas lui même le Dharma. C’était une compréhension partielle de l’esprit tel qu’il est.
+
+Au contraire, l'Enseignement trés secret des "cinq caractéristiques" et des "cinq Sapiences", les ornements du Royaume du Principe et de celui de la Vérité, le Locus mental de l'Eveil par soi qui est aussi appelé spontanné et naturel sont "connaître son esprit tel qu’il est". 
+
+La signification profonde sera expliquée plus tard.
+
+*T2514_.79.0013b10 / 14*
+Le véritable aspect de la forme et de l’esprit de tous les êtres est le Corps-de-sapience-d'égalité de Dainichi.  
+La  Matière est le rupa-Skhanda qui constitue les Cinq Roues. "Esprit" désigne l’élément Conscience qui constitue les quatre autres Skhanda.  
+Matière et Esprit sont identiques au Rokudai Hôsshin qui est la Sapience de la Nature du Hokkai.  
+Les cinq Roues sont appelés « Roues » car elles sont doté de la myriade des qualités.   
+Leurs caractéristiques intrinsèques étant sans limites, c’est pour cela que les Eléments sont sont qualifiés de “grands”.   
+Parce que les Gobutsu sont illuminés par eux-mêmes et illuminent les autres, on les appelle Nyôrai.  
+Parce que les Cinq Sapiences font la distinction entre les Objets, on les appelle Sapiences.
+
+Si la Matière est unie à l'Esprit, les Cinq Grands Eléments sont vus comme identiques aux Cinq Sapiences. Si la Matière est unie à l'Esprit, Les Cinq Sapiences sont vues comme identiques aux Cinq Roues. 
+Parce que « la Forme est la Vacuité », la myriade de dharmas est identique aux Cinq Sapiences.  Parceque « la Vacuité est la Forme », les Cinq Sapiences sont identique à la myriade des dharmas.
+La Matière (rupa skhanda) et l'Esprit ne sont pas deux, donc les Cinq Eléments sont identiques aux Cinq Organes, et les Cinq Organes sont identiques aux Cinq Sapiences.  
