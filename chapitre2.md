@@ -44,3 +44,13 @@ Zenmui Sanzô à dit:
 >«[...]ce mantra adamantin de cinq syllabes est le Cœur du Kongochôgyô et l'Essence du Dainichikyô, un champ de mérite sans égal et la Vertu superlative. S’il est reçu, les mérites obtenus ne peuvent être mesurés. Plus jamais il n’y aura de calamité ni d'ostacles. Les pires péchés seront éliminées et maintes vertus obtenues. Les mérites s'ammonceleront comme les nuages et le  corps, reçu des père et des mères, atteindra rapidement le grand Eveil. Le réciter une fois, vingt-et une fois ou quarante neuf fois équivaut à répéter cent-millions de fois les douze divisions du Tripitaka.»
 
 C’était le passage faisant l'éloge de ce mantra.
+
+*T2514_.79.0012c09 /11*
+Voici des images des cinq éléments, des cinq Roues, du Hôkkai des six éléments, de la roue des dix mondes, du véritable aspect de l’Esprit et de la Matière de tous les êtres et de la représentation de la Bouddhéité en ce corps:
+
+![image du monde des etres](https://github.com/Athansek/Gorinkuji/blob/master/LemondeesEtres.jpg)
+![image du dharma mandala](https://github.com/Athansek/Gorinkuji/blob/master/dharmamandala.jpg)
+![image du samaya madala](https://github.com/Athansek/Gorinkuji/blob/master/sanmayamandala.jpg)
+![image du maha mandala](https://github.com/Athansek/Gorinkuji/blob/master/MAhaman dala.jpg)
+![image des cinq destinées](https://github.com/Athansek/Gorinkuji/blob/master/cinqdestinées.jpg)
+![image synthétique](https://github.com/Athansek/Gorinkuji/blob/master/synthétique.jpg)
