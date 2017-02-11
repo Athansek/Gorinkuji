@@ -93,4 +93,72 @@ Parce que les Cinq Sapiences font la distinction entre les Objets, on les appell
 
 Si la Matière est unie à l'Esprit, les Cinq Grands Eléments sont vus comme identiques aux Cinq Sapiences. Si la Matière est unie à l'Esprit, Les Cinq Sapiences sont vues comme identiques aux Cinq Roues. 
 Parce que « la Forme est la Vacuité », la myriade de dharmas est identique aux Cinq Sapiences.  Parceque « la Vacuité est la Forme », les Cinq Sapiences sont identique à la myriade des dharmas.
-La Matière (rupa skhanda) et l'Esprit ne sont pas deux, donc les Cinq Eléments sont identiques aux Cinq Organes, et les Cinq Organes sont identiques aux Cinq Sapiences.  
+La Matière (rupa skhanda) et l'Esprit ne sont pas deux, donc les Cinq Eléments sont identiques aux Cinq Organes, et les Cinq Organes sont identiques aux Cinq Sapiences.
+
+*T2514_.79.0013b18 / 15*   
+
+![image de l"A"](https://github.com/Athansek/Gorinkuji/blob/master/A.jpg)Le son « A », l'élément Terre, le Foie gouvernant les Yeux , Araya Shiki, Dai Enkyôchi, Hôdo Nyôrai dans le Kongôkai, Ashuku Nyôrai dans le Taizôkai, Yakushi Nyôrai, Engendrer la Bodaishin, l'Est, le Bois dans le Wuxing, le Printemps, Jaune.
+
+![image du "BA"](https://github.com/Athansek/Gorinkuji/blob/master/BA.jpg)Le son « BA », l'élément Eau, les Poumons gouvernant le Nez, I Shiki, Myô Kanzachi, Tenbôrinchi, Muryôju Nyôrai, Réaliser l'Eveil, L'Ouest, le Métal dans le Wuxing, l'Automne, Blanc.
+
+![image du "RA"](https://github.com/Athansek/Gorinkuji/blob/master/RA.jpg)Le son « RA », l'élément Feu, le Coeur gouvernant la Langue, Mana Shiki, Byôdô Shô Chi, Kekaifu Nyôrai dans le Taizôkai, Hôshô Nyôrai dans le Kongôkai, Tahô Nyôrai, les Actes Evéillés, Sud, le Feu dans le Wuxing, l'Eté, Rouge.
+
+![image du "KA"](https://github.com/Athansek/Gorinkuji/blob/master/KA.jpg)Le son « KA », l'élément Vent, les Reins gouvernant les Oreilles, Les cinq consciences sensorielles, Joshosa Chi, Fukujôju Nyôrai dans le Kongôkai, Shaka Nyôrai dans le Taizôkai, Tenkuraion Nyôrai, Entrer dans la Vérité du Nirvana,le Nord, l'Eau dans le Wuxing, l'Hiver, Noir.
+
+![image du "KYA"](https://github.com/Athansek/Gorinkuji/blob/master/KYA.jpg)Le son « Kya », l'Elément Espace, La Rate qui gouverne la Bouche, Anmara Shiki, Hôkkai Taishô Chi, Dainichi Nyôrai, Avoir la pleine possession des moyens habiles, le Centre, le Terre dans le Wuxing, l'Eté long, Bleu.
+
+Ceci a été transmis par Zenmui Sanzô.
+
+*T2514_.79.0013c14 / 16*   
+« A »: Terre selon le Wuxing, L'Elément Terre, Saturne, le Centre, Jaune, le Duc de la Terre,Kenrô Jishin.
+« VI »: Eau selon le Wuxing, l'Elément Eau, Mercure, le Nord, Noir, Suiten, Ryûjin, Kôga Suijin.
+« RA »: Feu selon le Wuxing, L'Elément Feu, Mars, le Sud, Rouge, Katen, Kajin.
+« UN »: Métal, l'Elément Vent, Venus, l'Ouest, Blanc, Konjin, Fûten.
+« KYAN »: Bois, l'Elément Espace, Jupiter, l'est, Bleu, Mokujin, Kokûten, Kûjin.
+
+Ceci a été transmis par Fukukongô Sanzô.
+
+«A»: Engendrer la Bodaishin en son propre Esprit, Dai Enkyô Chi, Hôdô Nyôrai, Ashuku Nyôrai, l'Est.   
+«Â»: Ne faire qu'un avec toutes les pratiques, Byôdo Shô Chi, Kekaifu Nyôrai, Hôshô Nyôrai, le Sud.   
+«AN»: Voir son Esprit parfaitement Evéillé, Myôkanza Chi, Amida Butsu, l'Ouest.   
+«AKU»: Eveiller le Grand Nirvana dans son propre Esprit, Jô Shosa Chi, , Tenkuraion Nyôrai, Fukujôju Nyôrai, Shaka Nyôrai, le Nord.   
+«ÂNKU»: Evéiller son Esprit aux Moyens Habiles, Hôkkai Taisho Chi, Dainichi Nyôrai.
+
+Ci-dessus sont les Cinq Bouddha et les Cinq Sapiences de l'unité de la Vérité et de la Sagesse du Mitsugon Jodô. Identiques au Kongôkai,  ce sont les  Cinq Bouddhas et les  Cinq Sapiences du Taizôkai.
+
+« BA»: Produire la Bodaishin; Sagesse-parfaitement-telle-le-miroir, Hôdo Nyôrai, Ashuku Nyôrai.   
+« BÂ»: Cultiver les pratique de l’Eveil,; Sagesse-d’égalité ; Hôshô N;Kaifuke Ô Nyôrai .   
+« BAN»: Obtenir le freuit de l’immumination; Sagesse-discriminante;Amida Nyôrai.   
+« BAKU»: Entrer dans le principe du Nirvana; Sagesse-de-l’accomplissement-du-devoir; Fukûjojû Nyôrai; Tenkuraion Nyôrai, Shaka Nyôrai.   
+« BÂNKU»: Habileté dans les expédients salvifiques; Sagesse intrinsèque du Hôkkai; Dainichi Nyôrai.   
+
+Le tableau ci-dessus est l’Esprit, les Cinq Bouddha du Kongokai et son Grand Véhicule unificateur. Identiques au Taizôkai ils sont néanmoins les cinq Bouddha non-duels et les cinq sapiences du Kongôkai.
+
+Si on connait les cinq Roues de cette syllabe “BA”, on connait celles des autres syllabes. Comme chacune porte en elle les cinq Sapiences, elles sont en fait dotées de Sapiences innombrables. En raison de l'action de la Grande-Sapience-telle-le-miroir-parfait, chacune d'elles sont véritablement des Sapiences d'Evéillé. C’est la bouddhéité-atteinte-par-son-propre-esprit.
+
+Si le gyôja, lors des 4 périodes de la journée, n’est pas interrompu, peu importe qu’il soit réveillé ou endormi, demeure dans la Sapience et la Prajna, et pratique ce Samadhi il réalise Sokushinjobutsu sans difficulté.
+
+Cinq Bouddha du Hôbu: "RA", "RÂ", "RAN", "RAKU", "RÂNKU";   
+Cinq Bouddhas du Katsumabu: "KA", "KÂ", "KAN", "KAKU", "KÂNKU":   
+Cinq Bouddha du Kokûbu: "KYA", "KYÂ", "KYAN", "KYÂN", "KYÂNKU";    
+Organes: Foie, Coeur, Rate, Poumons, Reins.   
+
+*T2514_.79.0014a15 / 18*   
+Le Maître des Trois Corbeilles a dit "« J'ai reçu ceci de Kongôchi Sanzô. En le pratiquant avec Foi pendant mille jours, soudainement lors d’une nuit de pleine lune durant l’automne, j’ai atteint le Samadhi « Elimination des obstacles ».
+Lorsque moi, Kakuban,  j’ai entendu ce secret, j'y prété foi. Pendant de nombreuses années je l’ai pratiqué et atteint le Samadhi du premier stage. 
+
+Ô pratiquant fidèle ne doute pas et ne nourris pas de phantasmes. Si mes mots sont vides, tu le sauras en pratiquant. Ce que je désires pour toi est que tu ne vives pas en vain.
+
+*T2514_.79.0014a20 / 19*   
+L'“A” est Ashuku Nyôrai du Kongôbu qui rêgne sur le foie et la Conscience Visuelle. C’est à dire qu’il est le Corps-de-Loi Principiel de Dainichi Nyorai, la  pureté-en-soi, le sans-naissance originel et la vacuité incompréhensible. C’est la Syllabes de la Roue de la Terre de Grande Compassion, et le Kongobumandara.
+
+La Terre est la forme . Sous le rapport de la dichotomie de Nama et Rupa la Terre est Rupa. l'Esprit parmi les cinq skandhas est Vijnana Skandha qui soutient la Terre. Quand les deux entrent en contact, s'influençant mutuellement ils engendrent le Désir et l'Existence. Le Vent et l'Espace sont profanés tout comme les Portails de la Terre et du Feu. L'Eau, l'Espace et les semences des Consciences descendant dans la Matrice engendrent les Cinq organes.   
+Parceque des cinq skandha, c'est celui de la Conscience qui a provoqué la nouvelle renaissance, il est appellé Terre et il est Rupa Skandha.   
+Le Foie gouverne l'“Essence spirituelle”. Le Ki de l’âme est l’esprit du Bois à l’orient. Sa couleur est le bleu de l'Espace. Cette couleur bleue est tributaire du bois pour advenir et la croissance du bois dépend de l’eau. Le Foie dépend du Souffle bleu et des Reins. Sa forme est celle d’une feuille de lotus, on y trouve une perle de chair et il se trouve à gauche dans la poitrine.   
+Le foie remonte à la surface du corps et forme les yeux qui gouvernent les Tendons. Quand les tendons s’épuisent ils deviennent des clous.  
+Yômyô Enju a dit :  
+>« Le Lotus-Foie a huit pétales bleus dotés des cinq couleurs".
+
+*T2514_.79.0014b03 / 20*   
+
+
