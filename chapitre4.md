@@ -1,4 +1,4 @@
-La porte des pratiques secrètes que l'on accompli par soi-même.
+##La porte des pratiques secrètes que l'on accompli par soi-même##
 Bien que le Gyôja pratiquant les mantras puisse manquer de profonde sagesse et qu'il soit affligé des obstacles nés de l'ignorance et des péchés passés et présents , si il a un peu de Foi et si parfois il lui arrive de psalmodier ,de former des mudras et de visualiser les formes des trois sortes de corps ésotérique: syllabes, mudras, forme corporelle, il obtient la pureté.
 
 En entrant dans cette Voie les trois incommensurables Eons sont transcendés par une seule commémoration de l'A. Des Grâces et des Sapiences sans limites sont dans le Diamant des Trois-Mystères. Les quatre-vingt milles labeurs deviennent du beurre clarifié. Les cinq Skandhas se changent en Sapience de Bouddha. Le Mantra raisonnant de la bouche ouverte détruit les péchés. Le Mudra né des mains levées et des jambes en mouvement améliore les bénédictions. La merveilleuse visualisation s'élevant de l'esprit ne provient que du Soi. L'Activité Mentale devient soudainement Samadhi et atteint à la perfection.
