@@ -148,30 +148,3 @@ Le Maître des Trois Corbeilles a dit "« J'ai reçu ceci de Kongôchi Sanzô. 
 Lorsque moi, Kakuban,  j’ai entendu ce secret, j'y prété foi. Pendant de nombreuses années je l’ai pratiqué et atteint le Samadhi du premier stage. 
 
 Ô pratiquant fidèle ne doute pas et ne nourris pas de phantasmes. Si mes mots sont vides, tu le sauras en pratiquant. Ce que je désires pour toi est que tu ne vives pas en vain.
-
-*T2514_.79.0014a20 / 19*   
-L'“A” est Ashuku Nyôrai du Kongôbu qui rêgne sur le foie et la Conscience Visuelle. C’est à dire qu’il est le Corps-de-Loi Principiel de Dainichi Nyorai, la  pureté-en-soi, le sans-naissance originel et la vacuité incompréhensible. C’est la Syllabes de la Roue de la Terre de Grande Compassion, et le Kongobumandara.
-
-La Terre est la forme . Sous le rapport de la dichotomie de Nama et Rupa la Terre est Rupa. l'Esprit parmi les cinq skandhas est Vijnana Skandha qui soutient la Terre. Quand les deux entrent en contact, s'influençant mutuellement ils engendrent le Désir et l'Existence. Le Vent et l'Espace sont profanés tout comme les Portails de la Terre et du Feu. L'Eau, l'Espace et les semences des Consciences descendant dans la Matrice engendrent les Cinq organes.   
-Parceque des cinq skandha, c'est celui de la Conscience qui a provoqué la nouvelle renaissance, il est appellé Terre et il est Rupa Skandha.   
-Le Foie gouverne l'“Essence spirituelle”. Le Ki de l’âme est l’esprit du Bois à l’orient. Sa couleur est le bleu de l'Espace. Cette couleur bleue est tributaire du bois pour advenir et la croissance du bois dépend de l’eau. Le Foie dépend du Souffle bleu et des Reins. Sa forme est celle d’une feuille de lotus, on y trouve une perle de chair et il se trouve à gauche dans la poitrine.   
-Le foie remonte à la surface du corps et forme les yeux qui gouvernent les Tendons. Quand les tendons s’épuisent ils deviennent des clous.  
-Yômyô Enju a dit :  
->« Le Lotus-Foie a huit pétales bleus dotés des cinq couleurs".
-
-*T2514_.79.0014b03 / 20*   
-“BAN” est le Rengebu d’Amida Nyôrai qui reigne sur le poumon et la Conscience olfactive. C’est la onzième transformation de “BA” ,et “BI” en est la troisième. C’est l’eau de Sagesse de Dainichi Nyorai. C’est la Syllabes de la Grande Roue de l'Eau compatissante d’Amida Nyôrai.
-
-La maîtrise des pouvoirs spirituels est appelé le Hôsshin. Sa conjonction yogique avec son objet relatif est appellée Hoshin. C’est le Hokkebumandara.
-
-Les Poumons gouvernent l’Esprit Grossier et en sont la matérialisation. Son apparence est celle du nez. C’est la direction de l’ouest et le métal. Cet Esprit gouverne l’autumne et sa couleur est le blanc. 
-On trouve naturellement le souffle entre les Poumons et le nez, c’est çà dire le Vent. C’est le skandha de l’Idée parmis les cinq il maitient le Vent. Le skandha du Vent (fuon) à besoin de la conscience pour apparaître. La Conscience a besoin des deux causes du passé (avidya et samskara) pour produire les 5 effets (go.on). C’est à dire que sur l’ignorance et les formations mentales poussent la conscience, les nom-formes etc. La pensée erronée enfle et produit le samsara. Ce sont les 12 segments de la coproduction conditionnée.
-
-Les Poumons engendrent le conscience mentale. La Conscicence génére les pensées qui à leur tour engendre le samsara. 
-Quand le Ki blanc et les odeurs fortes entrent dans les Poumons, le foie est endommagé. S'il n’y a pas d’Esprit Grossier dans les Poumons, il y’a l’agitation et la maladie. Si le Coeur endommage les Poumons, la maladie advient. 
-Tout comme le feu est supérieur au métal, si le Coeur est fort et les Poumons sont faibles, les Poumons sont arrétés par le Coeur.   
-Si le Ki Blanc surpasse le Ki Rouge les maladies des Poumons sont allégées. Le Ki Blanc est le nom des Poumons.
-
-Le Lotus-poumon a trois pétale, il est de couleur blanche et de forme semi-circulaire. Ils se trouvent à 4,5 centimètres de part et d’autre de la troisième côte.
-
-
