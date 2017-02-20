@@ -160,5 +160,18 @@ Yômyô Enju a dit : 
 >« Le Lotus-Foie a huit pétales bleus dotés des cinq couleurs".
 
 *T2514_.79.0014b03 / 20*   
+“BAN” est le Rengebu d’Amida Nyôrai qui reigne sur le poumon et la Conscience olfactive. C’est la onzième transformation de “BA” ,et “BI” en est la troisième. C’est l’eau de Sagesse de Dainichi Nyorai. C’est la Syllabes de la Grande Roue de l'Eau compatissante d’Amida Nyôrai.
+
+La maîtrise des pouvoirs spirituels est appelé le Hôsshin. Sa conjonction yogique avec son objet relatif est appellée Hoshin. C’est le Hokkebumandara.
+
+Les Poumons gouvernent l’Esprit Grossier et en sont la matérialisation. Son apparence est celle du nez. C’est la direction de l’ouest et le métal. Cet Esprit gouverne l’autumne et sa couleur est le blanc. 
+On trouve naturellement le souffle entre les Poumons et le nez, c’est çà dire le Vent. C’est le skandha de l’Idée parmis les cinq il maitient le Vent. Le skandha du Vent (fuon) à besoin de la conscience pour apparaître. La Conscience a besoin des deux causes du passé (avidya et samskara) pour produire les 5 effets (go.on). C’est à dire que sur l’ignorance et les formations mentales poussent la conscience, les nom-formes etc. La pensée erronée enfle et produit le samsara. Ce sont les 12 segments de la coproduction conditionnée.
+
+Les Poumons engendrent le conscience mentale. La Conscicence génére les pensées qui à leur tour engendre le samsara. 
+Quand le Ki blanc et les odeurs fortes entrent dans les Poumons, le foie est endommagé. S'il n’y a pas d’Esprit Grossier dans les Poumons, il y’a l’agitation et la maladie. Si le Coeur endommage les Poumons, la maladie advient. 
+Tout comme le feu est supérieur au métal, si le Coeur est fort et les Poumons sont faibles, les Poumons sont arrétés par le Coeur.   
+Si le Ki Blanc surpasse le Ki Rouge les maladies des Poumons sont allégées. Le Ki Blanc est le nom des Poumons.
+
+Le Lotus-poumon a trois pétale, il est de couleur blanche et de forme semi-circulaire. Ils se trouvent à 4,5 centimètres de part et d’autre de la troisième côte.
 
 
