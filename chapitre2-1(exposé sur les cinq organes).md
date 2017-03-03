@@ -38,14 +38,35 @@ Si les Reins blessent le Coeur la maladie advient. Comme l’Eau l’emporte sur
 Si le Souffle Rouge surpasse le Souffle Noir, la maladie du Coeur se résorbe. Le Souffle Rouge est un nom du Coeur. La fleur du Coeur est rouge et de forme triangulaire. On le trouve exactement à 4.5 centimètre à gauche et à droite de la cinquième côte.
 
 *T2514_.79.0014c04 / 22*
-La syllable « HAM » est la section du Karma de Fukujôju Nyôrai, qui dirige les Reins et l'Estomac. Cette syllabe « HAM » est la 11° tranformation de la syllabe « HA ». On l’interprète comme les autres syllabes et elle porte la signification des 15 voyelles du Shittan, c’est la vie éternelle de Dainichi Nyôrai, la Base Fondamentale de Shaka Nyôrai, la semence du Vent et la Grande Compassion, les 3 Voies de liberation, l'incompréhensibilité des Trois Temps et le Katsuma Mandara du Corps Karmique. 
-Comme le Vent, la Conceptualisation(des cinq facteurs mentaux omniprésents) supporte l'Eau pareille à un Océan des Cinq Organes et Six Entrailles. Les Poumons et le Vent se rencontrent et la Mer des Renaissances. 
-Les Cinq Organes sont : le Foie, les Poumons, le Cœur, la Rate et les Reins. Estomac est un des noms des Six Entrailles, il est l’abdomen qui contient la Rate. 
-L’Eau de l’Océan des Six Entrailles entre dans la cavité de l’Estomac.  Les débordements issus des Cinq Organes et des Six Entrailles sont reçus par l'Estomac.
-Les Cinq Saveurs s'écoulent et débordent dans l'Estomac et les Reins reçoivent le trop-plein de celui-ci. Ils se trouvent 3,8 cm de part et d'autre de la colonne vertébrale sous la quatorzième vertèbre,  celui de droite est appelé « Porte de la Vie ».
-Les Reins se trouvent dans la partie inferieure de l'Abdomen. S’ils s'épuisent ils se changent en Eau. Elle gouverne la Volonté et devient le Nord et l’Eau qui gouverne l’Hiver qui est de couleur Noire. C'est le skandha de l’Impulsion (samskara).
+La syllable « HAM » est la section du Karma de Fukujôju Nyôrai, qui dirige les Reins et l'Estomac. 
+
+Cette syllabe « HAM » est la 11° tranformation de la syllabe « HA ». On l’interprète comme les autres syllabes et elle porte la signification des 15 voyelles du Shittan, c’est la vie éternelle de Dainichi Nyôrai, la Base Fondamentale de Shaka Nyôrai, la semence du Vent et la Grande Compassion, les 3 Voies de liberation, l'incompréhensibilité des Trois Temps et le Katsuma Mandara du Corps Karmique. 
+
+Comme le Vent, la Conceptualisation(des cinq facteurs mentaux omniprésents) supporte l'Eau pareille à un Océan des Cinq Organes et Six Entrailles. Les Poumons et le Vent se rencontrent et forment la Mer des Renaissances. 
+
+Les Cinq Organes sont : le Foie, les Poumons, le Cœur, la Rate et les Reins. Estomac est un des noms pour les Six Entrailles, il est l’abdomen qui est la cavité la Rate. 
+
+L’Eau de l’Océan des Cinq Organes et des Six Entrailles entre dans la cavité de l’Estomac.  Les débordements issus des Cinq Organes et des Six Entrailles y sont reçus.
+
+Les Cinq Saveurs s'écoulent, débordent dans l'Estomac et les Reins reçoivent le trop-plein de celui-ci. Ils se trouvent 3,8 cm de part et d'autre de la colonne vertébrale sous la quatorzième vertèbre,  celui de droite est appelé « Porte de la Vie ».
+Les Reins sont en partie couverts par l'Estomac. S’ils s'épuisent ils se changent en Eau. Elle gouverne la Volonté et devient le Nord et l’Eau qui gouverne l’Hiver qui est de couleur Noire. C'est le skandha de l’Impulsion (samskara).
+
 Des cinq Skandhas, Samskara soutient l'Elément Eau. Samskara est produit par Vedana qui provient de Smajna.
-  Les Reins proviennent de la couleur noire, et des Poumons. Ils gouvernent les oreilles. Ils se manifestent dans les os et gouvernent la Moelle. Une fois épuisée, cette dernière devient la cavité des oreilles. Les os affaiblis deviennent les dents. 
-Quand trop de saveurs salées entrent dans les Reins, ils enflent et  le Cœur s'étiole. S’il n’y a pas de Volonté dans les Reins, un profond regret s’installe. Si la Rate blesse les Reins, la maladie s'installe. Comme la Terre est supérieure à l’Eau, si la Rate est forte, les Reins sont faibles. La Rate arrête les Reins. Si le Ki noir submerge le Ki jaune, alors les maladies des Reins guéries. « Ki Noir » est le nom de l'Eau.
+
+  Les Reins proviennent de la couleur noire, et des Poumons. Ils gouvernent les oreilles. Ils se manifestent dans les os et gouvernent la Moelle. Une fois épuisée, cette dernière devient les conduits auriculaires. Les os affaiblis deviennent les dents. 
+Quand trop de saveurs salées entrent dans les Reins, ils enflent et  le Cœur s'étiole. S’il n’y a pas de Volonté dans les Reins, la tristesse et la lamentation s’installent. Si la Rate blesse les Reins, la maladie s'installe. Comme la Terre est supérieure à l’Eau, si la Rate est forte et les Reins sont faibles: la Rate arrête les Reins. Si le Ki noir submerge le Ki jaune, alors les maladies des Reins guéries. « Ki Noir » est le nom de l'Eau.
+
+*T2514_.79.0014c22 / 23*
+La syllabe « KYAM » est le Butusbu de Dainichi Nyôrai de la région supérieure qui conditionne la Rate et la perception de la langue. C’est à dire que « KYAM » est l’Usnisa invisible de Dainichi Nyôrai, les cinq Buchô, la Sapience de l’Espace immense, le Nirvana, l’Ainsité, l’Eveil obtenu par les Bouddha des dix directions et des Trois Temps. C’est aussi le le suprême Mandala sans équivalent. 
+La Rate gouverne l’Anmara Shiki et se trouve très précisément au milieu. Elle a prise sur l’Eté et sa couleur est jaune. La syllabe « A » est de la vraie couleur Or. La couleur jaune nourrit le Bois dans la Terre et crée le Feu par le Bois. C’est le Skandha de l’Esprit et supporte la Terre. C’est la Conscience Bois qui est bleue et est le Vide. La Rate à besoin de l’Essence Jaune et du Cœur pour exister. 
+C'est le Vijnana Skhanda qui sert de base à la Terre. D'aucuns disent qu'il est l'organe de Bois (le Foie).
+Quand trop de saveurs sucrées y entrent, la Rate enfle et endommage les Reins. Si il n'ya pas d'Esprit Spiritel, la confusion s'installe avec l'illusion. Si le Foie endommage la Rate la maladie fait son lit.
+Comme le Bois est supérieur à la Terre si les Reins sont forts la Rate est faible. Le Foie arrête le Coeur.  Si le Ki Jaune surpasse le Ki Bleu les maladies de la Rate son guéries. « Ki jaune » est le nom de la Rate.
+Le Lotus-Rate a un pétale jaune à quatre coins.
+Conclusion
+Les cinq organes sont comme une fleur de Lotus tournée vers le bas. Les cinq organes internes se manifestent par les cinq indriya et prennent une apparence qui est appelée « Forme ». Elle est les cinq éléments et les cinq sens. Son nom est « Pensée » le quatrième des skandha.
+Forme et Esprit sont Hôsshin des six éléments, l’Ainsi-allé des Cinq Sapiences, les cinq grands Bodhisattva (Kongo Haramitsu, Kongosatta, Kongohô, Kongohô, et Kongoyô) et cinq grands Vidyarajas (Fudo, Shôsanze, Gundari, Daitoku, Kongoyasha).
+Le Soleil, la Lune, les cinq planetes, les douze constellations et 28 loges lunaires deviennent le corps de l'Homme.
+L’Elément Terre qui forme iles et montagnes prend naissance dans la syllabe « A ». Toutes les rivières et les courants océaniques viennent de la syllabe « BAN». L’Or et les gemmes précieuses, les constellations, le Soleil et la Lune, les pierres radieuses sont le produite de la syllabe « RAN ». Les cinq céréales, tous les fruits et les fleurs dépendent de la syllabe « KAN » pour arriver à fruition. Les beautés excellentes et parfumées, la croissance des gens et des animaux, la couleur du visage, sa radiance, de bonnes proportions, les grâces, les vertus, la richesse et les honneurs, dépendent de la syllabe « KYAN ».
 
 
