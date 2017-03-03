@@ -57,13 +57,17 @@ Des cinq Skandhas, Samskara soutient l'Elément Eau. Samskara est produit par Ve
 Quand trop de saveurs salées entrent dans les Reins, ils enflent et  le Cœur s'étiole. S’il n’y a pas de Volonté dans les Reins, la tristesse et la lamentation s’installent. Si la Rate blesse les Reins, la maladie s'installe. Comme la Terre est supérieure à l’Eau, si la Rate est forte et les Reins sont faibles: la Rate arrête les Reins. Si le Ki noir submerge le Ki jaune, alors les maladies des Reins guéries. « Ki Noir » est le nom de l'Eau.
 
 *T2514_.79.0014c22 / 23*
-La syllabe « KYAM » est le Butusbu de Dainichi Nyôrai de la région supérieure qui conditionne la Rate et la perception de la langue. C’est à dire que « KYAM » est l’Usnisa invisible de Dainichi Nyôrai, les cinq Buchô, la Sapience de l’Espace immense, le Nirvana, l’Ainsité, l’Eveil obtenu par les Bouddha des dix directions et des Trois Temps. C’est aussi le le suprême Mandala sans équivalent. 
-La Rate gouverne l’Anmara Shiki et se trouve très précisément au milieu. Elle a prise sur l’Eté et sa couleur est jaune. La syllabe « A » est de la vraie couleur Or. La couleur jaune nourrit le Bois dans la Terre et crée le Feu par le Bois. C’est le Skandha de l’Esprit et supporte la Terre. C’est la Conscience Bois qui est bleue et est le Vide. La Rate à besoin de l’Essence Jaune et du Cœur pour exister. 
-C'est le Vijnana Skhanda qui sert de base à la Terre. D'aucuns disent qu'il est l'organe de Bois (le Foie).
-Quand trop de saveurs sucrées y entrent, la Rate enfle et endommage les Reins. Si il n'ya pas d'Esprit Spiritel, la confusion s'installe avec l'illusion. Si le Foie endommage la Rate la maladie fait son lit.
-Comme le Bois est supérieur à la Terre si les Reins sont forts la Rate est faible. Le Foie arrête le Coeur.  Si le Ki Jaune surpasse le Ki Bleu les maladies de la Rate son guéries. « Ki jaune » est le nom de la Rate.
-Le Lotus-Rate a un pétale jaune à quatre coins.
-Conclusion
+La syllabe « KYAM » est de Dainichi Nyôrai de la région supérieure du Kôkûbu qui conditionne la Rate et la perception de la langue. C’est à dire que « KYAM » est l'Usnisa incincible de Dainichi, la Sapience de l’Espace immense, le Nirvana. C’est aussi le le suprême Mandala de l'Eveil de tous les Bouddhas des Trois Temps et des dix Direction.
+
+La Rate gouverne l’Anmara Shiki et le Centre. Elle a prise sur l’Eté et sa couleur est jaune. La syllabe « A » est de la vraie couleur Or. La couleur jaune nourrit le Bois dans la Terre, le Feu se crée par le Bois. 
+
+C’est le Skandha de l’Esprit et supporte la Terre. D'aucun disent que l'organe du bois(le Foie) en est crée. Le Bois est bleu et est le Vide. La Rate à besoin de l’Essence Jaune et du Cœur pour advenir. Il gouverne la Bouche et est une de ses formes est la Volonté.
+
+Quand trop de saveurs sucrées y entrent, la Rate enfle et endommage les Reins. Si il n'ya pas d'Esprit Spirituel, la confusion s'installe avec l'illusion. Si le Foie endommage la Rate la maladie fait son lit.   
+Comme le Bois est supérieur à la Terre si les Reins sont forts la Rate est faible et le Foie arrête le Coeur.  Si le Ki Jaune surpasse le Ki Bleu les maladies de la Rate son guéries. « Ki jaune » est le nom de la Rate.   
+Le Lotus-Rate a un pétale jaune et quatre coins.
+
+*T2514_.79.0015a05/ 24*
 Les cinq organes sont comme une fleur de Lotus tournée vers le bas. Les cinq organes internes se manifestent par les cinq indriya et prennent une apparence qui est appelée « Forme ». Elle est les cinq éléments et les cinq sens. Son nom est « Pensée » le quatrième des skandha.
 Forme et Esprit sont Hôsshin des six éléments, l’Ainsi-allé des Cinq Sapiences, les cinq grands Bodhisattva (Kongo Haramitsu, Kongosatta, Kongohô, Kongohô, et Kongoyô) et cinq grands Vidyarajas (Fudo, Shôsanze, Gundari, Daitoku, Kongoyasha).
 Le Soleil, la Lune, les cinq planetes, les douze constellations et 28 loges lunaires deviennent le corps de l'Homme.
