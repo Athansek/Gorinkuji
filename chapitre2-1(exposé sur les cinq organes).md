@@ -8,7 +8,7 @@ Le foie remonte à la surface du corps et forme les yeux qui gouvernent les Tend
 Yômyô Enju a dit :  
 >« Le Lotus-Foie a huit pétales bleus dotés des cinq couleurs".
 
-*T2514_.79.0014b03 / 20*   
+*T2514_.79.0014b03 / 20*       
 “BAN” est le Rengebu d’Amida Nyôrai qui reigne sur le poumon et la Conscience olfactive. C’est la onzième transformation de “BA” ,et “BI” en est la troisième. C’est l’eau de Sagesse de Dainichi Nyorai. C’est le germe de la Grande Roue de l'Eau compassionnée d’Amida Nyôrai.
 
 La maîtrise des pouvoirs spirituels est appelé "Hôsshin". Leur conjonction yogique avec leur objet relatif est appellée "Hoshin". C’est le Hokkebumandara.
@@ -24,7 +24,7 @@ Si le Ki Blanc surpasse le Ki Rouge les maladies des Poumons sont allégées. Le
 
 Le Lotus-poumon a trois pétale, il est de couleur blanche et de forme semi-circulaire. Ils se trouvent à 4,5 centimètres de part et d’autre de la troisième côte.
 
-*T2514_.79.0014b19 / 21*   
+*T2514_.79.0014b19 / 21*      
 « RAN » est le Hôbu de Hôdo Nyôrai qui rêgne sur le Coeur par la bouche. Autrement dit « RAN » est le feu de sagesse de Dainichi Nyorai, la grande compassion de Hôdo Nyôrai, le mandala du Fukutokushin et la semence de l’élément Feu. 
 
 Il brûle des souillures de l’Ignorance-sans-commencement et fait germer la graine de la Bodaishin. C’est en somme le Fukutokushin de tous les Bouddha. Le feu de la véritable sagesse consume les causes karmiques de la déshérance et donne la maîtrise des pouvoirs extraordinaires. 
@@ -37,7 +37,7 @@ Si les Reins blessent le Coeur la maladie advient. Comme l’Eau l’emporte sur
 
 Si le Souffle Rouge surpasse le Souffle Noir, la maladie du Coeur se résorbe. Le Souffle Rouge est un nom du Coeur. La fleur du Coeur est rouge et de forme triangulaire. On le trouve exactement à 4.5 centimètre à gauche et à droite de la cinquième côte.
 
-*T2514_.79.0014c04 / 22*
+*T2514_.79.0014c04 / 22*   
 La syllable « HAM » est la section du Karma de Fukujôju Nyôrai, qui dirige les Reins et l'Estomac. 
 
 Cette syllabe « HAM » est la 11° tranformation de la syllabe « HA ». On l’interprète comme les autres syllabes et elle porte la signification des 15 voyelles du Shittan, c’est la vie éternelle de Dainichi Nyôrai, la Base Fondamentale de Shaka Nyôrai, la semence du Vent et la Grande Compassion, les 3 Voies de liberation, l'incompréhensibilité des Trois Temps et le Katsuma Mandara du Corps Karmique. 
@@ -56,7 +56,7 @@ Des cinq Skandhas, Samskara soutient l'Elément Eau. Samskara est produit par Ve
   Les Reins proviennent de la couleur noire, et des Poumons. Ils gouvernent les oreilles. Ils se manifestent dans les os et gouvernent la Moelle. Une fois épuisée, cette dernière devient les conduits auriculaires. Les os affaiblis deviennent les dents. 
 Quand trop de saveurs salées entrent dans les Reins, ils enflent et  le Cœur s'étiole. S’il n’y a pas de Volonté dans les Reins, la tristesse et la lamentation s’installent. Si la Rate blesse les Reins, la maladie s'installe. Comme la Terre est supérieure à l’Eau, si la Rate est forte et les Reins sont faibles: la Rate arrête les Reins. Si le Ki noir submerge le Ki jaune, alors les maladies des Reins guéries. « Ki Noir » est le nom de l'Eau.
 
-*T2514_.79.0014c22 / 23*
+*T2514_.79.0014c22 / 23*    
 La syllabe « KYAM » est de Dainichi Nyôrai de la région supérieure du Kôkûbu qui conditionne la Rate et la perception de la langue. C’est à dire que « KYAM » est l'Usnisa incincible de Dainichi, la Sapience de l’Espace immense, le Nirvana. C’est aussi le le suprême Mandala de l'Eveil de tous les Bouddhas des Trois Temps et des dix Direction.
 
 La Rate gouverne l’Anmara Shiki et le Centre. Elle a prise sur l’Eté et sa couleur est jaune. La syllabe « A » est de la vraie couleur Or. La couleur jaune nourrit le Bois dans la Terre, le Feu se crée par le Bois. 
@@ -67,10 +67,8 @@ Quand trop de saveurs sucrées y entrent, la Rate enfle et endommage les Reins. 
 Comme le Bois est supérieur à la Terre si les Reins sont forts la Rate est faible et le Foie arrête le Coeur.  Si le Ki Jaune surpasse le Ki Bleu les maladies de la Rate son guéries. « Ki jaune » est le nom de la Rate.   
 Le Lotus-Rate a un pétale jaune et quatre coins.
 
-*T2514_.79.0015a05/ 24*
+*T2514_.79.0015a05/ 24*    
 Les cinq organes sont comme une fleur de Lotus tournée vers le bas. Les cinq organes internes se manifestent par les cinq indriya et prennent une apparence qui est appelée « Forme ». Elle est les cinq éléments et les cinq sens. Son nom est « Pensée » le quatrième des skandha.
 Forme et Esprit sont Hôsshin des six éléments, l’Ainsi-allé des Cinq Sapiences, les cinq grands Bodhisattva (Kongo Haramitsu, Kongosatta, Kongohô, Kongohô, et Kongoyô) et cinq grands Vidyarajas (Fudo, Shôsanze, Gundari, Daitoku, Kongoyasha).
 Le Soleil, la Lune, les cinq planetes, les douze constellations et 28 loges lunaires deviennent le corps de l'Homme.
 L’Elément Terre qui forme iles et montagnes prend naissance dans la syllabe « A ». Toutes les rivières et les courants océaniques viennent de la syllabe « BAN». L’Or et les gemmes précieuses, les constellations, le Soleil et la Lune, les pierres radieuses sont le produite de la syllabe « RAN ». Les cinq céréales, tous les fruits et les fleurs dépendent de la syllabe « KAN » pour arriver à fruition. Les beautés excellentes et parfumées, la croissance des gens et des animaux, la couleur du visage, sa radiance, de bonnes proportions, les grâces, les vertus, la richesse et les honneurs, dépendent de la syllabe « KYAN ».
-
-
