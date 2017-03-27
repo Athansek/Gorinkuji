@@ -1,4 +1,4 @@
-##Entrer correctement dans le Shingon profond##
+## Entrer correctement dans le Shingon profond ##
 *T2514_.79.0012a22 / 7-52*
 
 La pratique correcte du Shingon-Mikkyo est composée de trois membres:
