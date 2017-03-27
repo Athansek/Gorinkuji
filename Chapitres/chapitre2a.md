@@ -48,10 +48,15 @@ C’était le passage faisant l'éloge de ce mantra.
 Voici des images des cinq éléments, des cinq Roues, du Hôkkai des six éléments, de la roue des dix mondes, du véritable aspect de l’Esprit et de la Matière de tous les êtres et de la représentation de la Bouddhéité en ce corps:
 
 ![image du monde des etres](https://github.com/Athansek/Gorinkuji/blob/master/Images/LemondeesEtres.jpg)
+
 ![image du dharma mandala](https://github.com/Athansek/Gorinkuji/blob/master/Images/dharmamandala.jpg)
+
 ![image du samaya madala](https://github.com/Athansek/Gorinkuji/blob/master/Images/sanmayamandala.jpg)
+
 ![image du maha mandala](https://github.com/Athansek/Gorinkuji/blob/master/Images/MAhaman%20dala.jpg)
+
 ![image des cinq destinées](https://github.com/Athansek/Gorinkuji/blob/master/Images/cinq%20destin%C3%A9es.jpg)
+
 ![image synthétique](https://github.com/Athansek/Gorinkuji/blob/master/Images/synth%C3%A9tique.jpg)
 
 *T2514_.79.0013a13 / 12*   
