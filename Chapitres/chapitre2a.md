@@ -1,6 +1,5 @@
 ## Entrer correctement dans le Shingon profond ##
 *T2514_.79.0012a22 / 7-52*
-
 La pratique correcte du Shingon-Mikkyo est composée de trois membres:
 * la pratique du Mystère du corps ;
 * La pratique du Mystère de la parole ;
@@ -301,11 +300,8 @@ Si l'on ne s'interesse pas aux Cinq Eléments Fondamentaux on se perd dans les T
 
 Alors qu'en tenant compte des Cinq Eléments et en contruisant les Quatre Mandalas on pourra grâce aux Cinq Sapiences des Cinq Bouddhas atteindre le Nirvana. Tel est l'origine fondamentale des choses.
 
-
-
->"
 *T2514_.79.0015b27 / 30*   
-Tousles dharmas emergent de l'"A", étant tous enclos dans ce Germe les caractéristiques ou attributs sont les résultants des nuances de Karma des des Sic eléments fondamentaux: Enfer et paradis, Nature-de-Bouddha et Icchantika, souillure et Bodhi, Samsara et Nirvana, vues erronées extrêmes et la Voie Médiane, Vacuité et Existence, le partile et le Parfait, les Deux Véhicule et le Véhicule Unique, la Souffrance et la Joie. Toutes ces choses sont faites des Six Eléments Fondamentaux qui en sont les causes matérielles. Les produits futurs en sont l'Etat résultant.
+Tousles dharmas emergent de l'"A", étant tous enclos dans ce Germe les caractéristiques ou attributs sont les résultants des nuances de Karma des des Six eléments fondamentaux: Enfer et paradis, Nature-de-Bouddha et Icchantika, souillure et Bodhi, Samsara et Nirvana, vues erronées extrêmes et la Voie Médiane, Vacuité et Existence, le partile et le Parfait, les Deux Véhicule et le Véhicule Unique, la Souffrance et la Joie. Toutes ces choses sont faites des Six Eléments Fondamentaux qui en sont les causes matérielles. Les produits futurs en sont l'Etat résultant.
 
 En s'appuaynt sur le véritable Sagesse on est à même de comprendre les Six Eléments. En cultivant les Ciq Sapiences, les Quatre Corps, les Quatres Mandalas, le Triple Mystère et un Esprit droit ils s'affirment, s'expriment et se réalisent. Ainsi se parachève le Mandala infini et splendide.
 
