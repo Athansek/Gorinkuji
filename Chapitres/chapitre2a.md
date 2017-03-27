@@ -101,15 +101,15 @@ La Matière (rupa skhanda) et l'Esprit ne sont pas deux, donc les Cinq Eléments
 
 *T2514_.79.0013b18 / 15*   
 
-![image de l"A"](https://github.com/Athansek/Gorinkuji/master/Images/A.jpg)Le son « A », l'élément Terre, le Foie gouvernant les Yeux , Araya Shiki, Dai Enkyôchi, Hôdo Nyôrai dans le Kongôkai, Ashuku Nyôrai dans le Taizôkai, Yakushi Nyôrai, Engendrer la Bodaishin, l'Est, le Bois dans le Wuxing, le Printemps, Jaune.
+![image de l"A"](https://github.com/Athansek/Gorinkuji/blob/master/Images/A.jpg)Le son « A », l'élément Terre, le Foie gouvernant les Yeux , Araya Shiki, Dai Enkyôchi, Hôdo Nyôrai dans le Kongôkai, Ashuku Nyôrai dans le Taizôkai, Yakushi Nyôrai, Engendrer la Bodaishin, l'Est, le Bois dans le Wuxing, le Printemps, Jaune.
 
-![image du "BA"](https://github.com/Athansek/Gorinkuji/master/Images/BA.jpg)Le son « BA », l'élément Eau, les Poumons gouvernant le Nez, I Shiki, Myô Kanzachi, Tenbôrinchi, Muryôju Nyôrai, Réaliser l'Eveil, L'Ouest, le Métal dans le Wuxing, l'Automne, Blanc.
+![image du "BA"](https://github.com/Athansek/Gorinkuji/blob/master/Images/BA.jpg)Le son « BA », l'élément Eau, les Poumons gouvernant le Nez, I Shiki, Myô Kanzachi, Tenbôrinchi, Muryôju Nyôrai, Réaliser l'Eveil, L'Ouest, le Métal dans le Wuxing, l'Automne, Blanc.
 
-![image du "RA"](https://github.com/Athansek/Gorinkuji/master/Images/RA.jpg)Le son « RA », l'élément Feu, le Coeur gouvernant la Langue, Mana Shiki, Byôdô Shô Chi, Kekaifu Nyôrai dans le Taizôkai, Hôshô Nyôrai dans le Kongôkai, Tahô Nyôrai, les Actes Evéillés, Sud, le Feu dans le Wuxing, l'Eté, Rouge.
+![image du "RA"](https://github.com/Athansek/Gorinkuji/blob/master/Images/RA.jpg)Le son « RA », l'élément Feu, le Coeur gouvernant la Langue, Mana Shiki, Byôdô Shô Chi, Kekaifu Nyôrai dans le Taizôkai, Hôshô Nyôrai dans le Kongôkai, Tahô Nyôrai, les Actes Evéillés, Sud, le Feu dans le Wuxing, l'Eté, Rouge.
 
-![image du "KA"](https://github.com/Athansek/Gorinkuji/master/Images/KA.jpg)Le son « KA », l'élément Vent, les Reins gouvernant les Oreilles, Les cinq consciences sensorielles, Joshosa Chi, Fukujôju Nyôrai dans le Kongôkai, Shaka Nyôrai dans le Taizôkai, Tenkuraion Nyôrai, Entrer dans la Vérité du Nirvana,le Nord, l'Eau dans le Wuxing, l'Hiver, Noir.
+![image du "KA"](https://github.com/Athansek/Gorinkuji/blob/master/Images/KA.jpg)Le son « KA », l'élément Vent, les Reins gouvernant les Oreilles, Les cinq consciences sensorielles, Joshosa Chi, Fukujôju Nyôrai dans le Kongôkai, Shaka Nyôrai dans le Taizôkai, Tenkuraion Nyôrai, Entrer dans la Vérité du Nirvana,le Nord, l'Eau dans le Wuxing, l'Hiver, Noir.
 
-![image du "KYA"](https://github.com/Athansek/Gorinkuji/master/Images/KYA.jpg)Le son « Kya », l'Elément Espace, La Rate qui gouverne la Bouche, Anmara Shiki, Hôkkai Taishô Chi, Dainichi Nyôrai, Avoir la pleine possession des moyens habiles, le Centre, le Terre dans le Wuxing, l'Eté long, Bleu.
+![image du "KYA"](https://github.com/Athansek/Gorinkuji/blob/master/Images/KYA.jpg)Le son « Kya », l'Elément Espace, La Rate qui gouverne la Bouche, Anmara Shiki, Hôkkai Taishô Chi, Dainichi Nyôrai, Avoir la pleine possession des moyens habiles, le Centre, le Terre dans le Wuxing, l'Eté long, Bleu.
 
 Ceci a été transmis par Zenmui Sanzô.
 
