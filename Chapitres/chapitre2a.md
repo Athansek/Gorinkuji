@@ -27,16 +27,6 @@ Ces cinq syllabes sont les mots du  mantra qui détruit les quatre démons. La p
 A la manière de la Terre, le «A» fait émerger toutes choses, la Terre du signe «A» fait émerger la myriade des pratiques des six Paramita. «Terre» signifie «Solidité». La Bodaishin est adamantine, non-régressive et se cristallisera nécessairement en une myriade de résultats propices .
 Si le pratiquant lance sa fleur elle atterrit sur la base-mentale (qui est la syllabe « A », la Bodaishin innée) et il plante la graine de l’Éveil. Si il ne subit pas de grande infortune, telles qu'une grave maladie, il atteindra rapidement l’Éveil sans supérieur. Il prendra alors le nom de « Ichijin Rin Ô ».
 
-*T2514_.79.0016d04 / 37*   
-![Les Cinq Emblêmes](https://github.com/Athansek/Gorinkuji/blob/master/Images/cind-embl%C3%AAmes.jpg)
-* Le Dragon bleu: Foie, "Ûn", les Yeux, Cri, le luminaire annuel, Jupiter, la Grande Divinité anuelle (Taisai / Tai sui), Bleu, Bois.
-* Le Phoenix Vermeil: Coeur, "Taraku", Bouche, Parole, Luminaire dangereux, Mars, Divinité punitive annuelle(Tai saigyo/Tai saigei, Rouge, Feu.   
-* Le Guerrier Noir: Rein, "AKU", Oreilles, Fredonner, Etoile Tigre, Mercure, Divinité punitive annuelle), Noir, Eau.
-* Le Tigre Blanc: Poumon, "Kiriku", Nez, Sanglot, Grande Etoile Blanche, Venus, Grand General(Dai Shôgun), Blanc, Metal.
-* Le Dragon Jaune, Rate, "BAN", Langue, Chant, Luminaire protecteur, Saturne, Divinité meritoire annuelle, Jaune, Terre.
-https://ja.wikipedia.org/wiki/%E5%85%AB%E5%B0%86%E7%A5%9E
-
-
 Ne vilipendez pas ce corps qui est le véhicule vers la Bouddhéité. Il vaut mieux médire de l'Enseignement du Shingon et le remettre en cause, que pratiquer les trois véhicules inférieurs. Alors que dire de celui qui peut lancer la fleur  et pratique avec Foi et Discipline! Voici ce que sont la  Croissance et la Maturation de l'«A».
 
 Le Syllabes «BI» exprime la notion de « Lien». Sa représentation avec la syllabe « I» est le Samâdhi sans obstructions qui est la libération inconcevable.  
@@ -265,7 +255,8 @@ Celui qui pratique selon ces principes doit se rendre compte qu'il peut éloigne
 C'est la perle dans le Chignon des Cinq Bouddhas, la Profondeur des Cinq Sapiences. C'est le Principe-mère qui engendre les Ainsi-allés des dix directions. C'est la Sapience-père qui protège tous les Sages des Trois Temps.
 
 Au surplus, c'est l'Essence des Six Eléments et des Quatre Mandalas, les caractéristiques spécifiques des Quatre Corps et le Triple Mystère, le refuge des quatre sortes de Sages et des six sortes de non-évéillés. Etant donné qu'il s'agit du véritable aspect des Cinq Locus de Renaissance et les Quatre Façons d'Engendrer, ils permettent de détruire les Quatre Démons et d'être libéré des Six Locus de Renaissance.
-*T2514_.79.0015a27 / 27*   
+
+*T2514_.79.0015a27 / 27*       
 L"A" est l'Elément Terre adamantin que l'on comprendre comme étant le "Kongôza".   
 "BAN" est l'Elément Eau adamantin que l'on peut comprendre comme étant le "Lotus-plateforme de l'Esprit.  
 "RAN" est l'Elément Feu adamantin qui permet Nichirinkan.   
@@ -289,8 +280,6 @@ Grâce à ce moyen habile on s'unit à la Grande Vacuité et ainsi ce manifesten
 
 L'Esprit au centre de ce Lotus est Vide maint embrasse la totalité de la Matière.C'est le Hôsshin sans caractéristique tangible qui manifeste les caractéristiques de la Matière, voici l'Océan de l'Assemblé Universelle des Mandalas des Mondes des dix directions.   
 Comme il n'y a nulle part qu'il n'atteigne, il est imprègne la totalité du Hôkkai.
-
-
 
 *T2514_.79.0015b15 / 29*   
 Tout ceci est le corps physique de Dainichi Nyôrai, il n'est que d'une seule substance et comme il a absolument toutes les Qualités, on dit que c'est le Bouddha. Tous les Bouddhas sont le Grand Être Dainichi, tous les Grands Êtres sont Dainichi. Même les Deva, les Asura, les Preta et les divinités sont l'Aspect extérieur du Hôsshin. Alors souvenez vous que ces Cinq Syllabes sont le Mantra commun de tous les Bouddhas.
@@ -334,7 +323,6 @@ Le Coeur Rouge gouverne le Feu, "TARAKU" est son éveil foncier. "AKU" peut le d
 
 Ainsi par l'Eau Noire de la Qintuple Sapience Originellement Non Née on douche le feu des trois nuances de Rouge, autrement dit les vues fausses, les 160 dispositions d'esprits et les cinq entraves nées de l'Inorance et des Vues Erronées. Le Feu Adamantin Rouge des Graĉes et Vertus des Cinq Sapience Originellement Non Nées de la syllabe "TARAKU" prend alors naissance. Il enfle et ce feu brulant donne naissance à Hôshô Nyôrai de la Byôdo Shô Chi. Ainsi se dévoile la porte du SAmadhi Adamantin des Grâces et Vertus.  
 
-
 *T2514_.79.0015c28 / 31*   
 L'organe "Poumons" est Blanc et gouverne le Métal. "KIRIKU" est son Eveil Foncier, il est surpassé par "TARAKU".
 
@@ -353,12 +341,15 @@ La raison en est que par nature le Bois domine la Terre, et en cela la significa
 
 C'est ansi que le Bois adamantin de la Quintuple Sapience du Sans-naissance détruit la Terre Jaune au trois nuances des cinq obstacles, 160 dispositions d'Esprit etc. qui surgissent des perceptions illusionnées et de l'ignorance.
 C'est d'elle qu'apparait l'indestructibe Terre-Naraen adamantine du "BAN" de la Quintuple Sapience du Sans Naissance. S'amplifiant et maturant elle donne naissance à la Sapience de l'Essence du Hokkai de Dainichi Nyôrai: le Samadhi Adamantin des Six Eléments du Hokkai.
+
 *T2514_.79.0016a20 / 34*   
 Si la recitation est celle du Kongôkai, le Gyôja entrera dans le Samadhi de Kongô Haramitsu et deviendra cette divinité et deviendra un Nirmanakaya.      
 Si la récitation est celle du Taizôkai, le Gyôja entrera dans le Samadhi de Monju et deviendra le Nirmanakya de cette divinité.   
 Lui et tous les êtres s'uniront et il réaliseront le Hôsshin indestructible.
+
 *T2514_.79.0016a23 /35*   
 Il en resulte que que le Foie devient Gosanze Myôô, le Foie devient Gundari, les Reins mutent en Daiitoku et le Coeur en Kongôyasha. La Rate quand à elle sera Fudo et le Triple Réchauffeur Fugen.
+
 *36*   
 Autrefois, SAga Tenô demanda:   
 >"Où se trouve la preuve de l'assertion du Shingon Shû qui affirme qu'un quidam peut atteindre la Bouddhéité dans ce corps?"   
@@ -367,54 +358,63 @@ Alors, l'Empereur se leva de son trône et rendit homage à Kûkai comme le fera
 
 Ainsi le Samadhi des Cinq organes est le plus secret des secrets, un Enseignement par lequel on peut manifester un Samadhi sans se lever de son siège! Je vous entretien de ceci pour vous conforter dans votre croyance.
 
-*T2514_.79.0017a01 / 38*  
+*T2514_.79.0016d04 / 37*   
+![Les Cinq Emblêmes](https://github.com/Athansek/Gorinkuji/blob/master/Images/cind-embl%C3%AAmes.jpg)
+* Le Dragon bleu: Foie, "Ûn", les Yeux, Cri, le luminaire annuel, Jupiter, la Grande Divinité anuelle (Taisai / Tai sui), Bleu, Bois.
+* Le Phoenix Vermeil: Coeur, "Taraku", Bouche, Parole, Luminaire dangereux, Mars, Divinité punitive annuelle(Tai saigyo/Tai saigei, Rouge, Feu.   
+* Le Guerrier Noir: Rein, "AKU", Oreilles, Fredonner, Etoile Tigre, Mercure, Divinité punitive annuelle), Noir, Eau.
+* Le Tigre Blanc: Poumon, "Kiriku", Nez, Sanglot, Grande Etoile Blanche, Venus, Grand General(Dai Shôgun), Blanc, Metal.
+* Le Dragon Jaune, Rate, "BAN", Langue, Chant, Luminaire protecteur, Saturne, Divinité meritoire annuelle, Jaune, Terre.
+https://ja.wikipedia.org/wiki/%E5%85%AB%E5%B0%86%E7%A5%9E
+
+*T2514_.79.0017a01 / 38*    
 Le passage sur "La Syllabe entre dans les organes et aucune maladie n'advient; Réaliser la bouddhéité dés ce corps" dit:   
 
->"Qu'il soit Saint ou quidam,   
-  Qu'il obtienne le Kanjô   
-  Et qu'il fasse le Mudra du Stupa   
-  Puis qu'avec sa bouche il répête "BAN"   
+>"Qu'il soit Saint ou quidam,     
+  Qu'il obtienne le Kanjô,          
+  Et qu'il fasse le Mudra du Stupa,      
+  Puis qu'avec sa bouche il répête "BAN".       
   Il devrait visualiser "Je suis Dainichi".
-  Si il n'éprouve pas le doute
-  Dans la vie présente   
-  Il déracinera rapidement l'Ignorance;
-  Et les Cinq Crimes Pervers
-  Et les Quadruples et Octuples transgressions
-  Et les Sept Ruption Perverses de Voeux
-  Et la médisance des Ecritures Vaipulya
+  Si il n'éprouve pas le doute,   
+  Dans la vie présente,       
+  Il déracinera rapidement l'Ignorance;   
+  Et les Cinq Crimes Pervers,   
+  Et les Quadruples et Octuples transgressions,   
+  Et les Sept Ruption Perverses de Voeux,    
+  Et la médisance des Ecritures Vaipulya,   
   Et être un Icchantika, etc.
-  Tout ces péchés sans nombres
+  Tout ces péchés sans nombres,   
   Seront Epuisés.
-  Et plus rien ne subsistera de l'impureté.
-  Il atteindra la Bouddhéité dans ce corps,
-  Et sans tarder sera libéré des naissance et des morts.
-  Il pourra dés lors oeuvrer au bénéfice de tous
-  Sans interruption.
-  Avec tous les Bouddhas des Dix Directions
-  Il entrera dans le Samadhi,
-  Et avec les Bouddhas des Trois Temps
-  Il recevra les joies du Dharma.
-  Jouissant de la souverainneté des moyens extraordinaires
-  Il sera témoin des Mystères
-  Et chaque mouvment et action de ses mains et de ses pieds
-  Seront des Mudras Secrêts,
-  Chaque fois qu'il ouvrira la bouche et emettra un son
-  Il s'agira un Mantra.
-  Chaque Etat Mental
-  Sera automatiquement un Samadhi.
-  Toutes les conséquences de ses qualités
-  Seront les Mandalas de son propre Esprit.
-  Qu'il fasse un seul Mudra
-  Sera toujours plus fructueux que de les réaliser tous pour l'Eternité et
-  Qu'il n'emette qu'une fois ce Mantra,
-  Cela surpassera aussi tous les Samadhis
-  Dans les les Trois Cosmes et pratiquer la Merveilleuse Prajna.
-  S'il y'a des créatures qui entendant cela
-  N'y accordent pas de crédit,
-  Elles tomberont dans l'Abiruka
-  Et détruirons leur nature de Bouddha
-  Sans qu'aucun Bouddha ne puisse les sauver.
-  Que dire alors de ceux que ce sujet n'interesse même pas!
+  Et plus rien ne subsistera de l'impureté.    
+  Il atteindra la Bouddhéité dans ce corps,    
+  Et sans tarder sera libéré des naissance et des morts.   
+  Il pourra dés lors oeuvrer au bénéfice de tous,   
+  Sans interruption.   
+  Avec tous les Bouddhas des Dix Directions,   
+  Il entrera dans le Samadhi,   
+  Et avec les Bouddhas des Trois Temps,   
+  Il recevra les joies du Dharma.   
+  Jouissant de la souverainneté des moyens extraordinaires,   
+  Il sera témoin des Mystères,   
+  Et chaque mouvment et action de ses mains et de ses pieds,   
+  Seront des Mudras Secrêts,    
+  Chaque fois qu'il ouvrira la bouche et emettra un son,   
+  Il s'agira un Mantra.   
+  Chaque Etat Mental,    
+  Sera automatiquement un Samadhi.    
+  Toutes les conséquences de ses qualités,   
+  Seront les Mandalas de son propre Esprit.   
+  Qu'il fasse un seul Mudra,    
+  Sera toujours plus fructueux que de les réaliser tous pour l'Eternité et    
+  Qu'il n'emette qu'une fois ce Mantra,    
+  Cela surpassera aussi tous les Samadhis,   
+  Dans les les Trois Cosmes et pratiquer la Merveilleuse Prajna.   
+  S'il y'a des créatures qui entendant cela,   
+  N'y accordent pas de crédit,   
+  Elles tomberont dans l'Abiruka,    
+  Et détruirons leur nature de Bouddha,    
+  Sans qu'aucun Bouddha ne puisse les sauver.    
+  Que dire alors de ceux que ce sujet n'interesse même pas!    
 
 Ces vers me furent transmis à moi Kakuban lors de mon Kanjô. Ce qu'ils véhiculent diffèrent considérablement de ce qui peut se dire par ailleurs, aussi ils ne devraient pas être couchés par écrit. Ils concernent au premier chef l'Organe-poumons, mais est tout à fait valable pour les autres Organes.
 
