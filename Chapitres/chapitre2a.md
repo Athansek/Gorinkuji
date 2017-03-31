@@ -366,3 +366,56 @@ Alors trés respectueusement, Kôbô Daishi entra dans le Samadhi des Cinq Organ
 Alors, l'Empereur se leva de son trône et rendit homage à Kûkai comme le ferait une personne du commun. Toutes les sectes bouddhiques mirent leur bannières en berne et l'Impératrice fit livrer des robes au Grand-maître.   
 
 Ainsi le Samadhi des Cinq organes est le plus secret des secrets, un Enseignement par lequel on peut manifester un Samadhi sans se lever de son siège! Je vous entretien de ceci pour vous conforter dans votre croyance.
+
+*T2514_.79.0017a01 / 38*  
+Le passage sur "La Syllabe entre dans les organes et aucune maladie n'advient; Réaliser la bouddhéité dés ce corps" dit:   
+
+>"Qu'il soit Saint ou quidam,   
+  Qu'il obtienne le Kanjô   
+  Et qu'il fasse le Mudra du Stupa   
+  Puis qu'avec sa bouche il répête "BAN"   
+  Il devrait visualiser "Je suis Dainichi".
+  Si il n'éprouve pas le doute
+  Dans la vie présente   
+  Il déracinera rapidement l'Ignorance;
+  Et les Cinq Crimes Pervers
+  Et les Quadruples et Octuples transgressions
+  Et les Sept Ruption Perverses de Voeux
+  Et la médisance des Ecritures Vaipulya
+  Et être un Icchantika, etc.
+  Tout ces péchés sans nombres
+  Seront Epuisés.
+  Et plus rien ne subsistera de l'impureté.
+  Il atteindra la Bouddhéité dans ce corps,
+  Et sans tarder sera libéré des naissance et des morts.
+  Il pourra dés lors oeuvrer au bénéfice de tous
+  Sans interruption.
+  Avec tous les Bouddhas des Dix Directions
+  Il entrera dans le Samadhi,
+  Et avec les Bouddhas des Trois Temps
+  Il recevra les joies du Dharma.
+  Jouissant de la souverainneté des moyens extraordinaires
+  Il sera témoin des Mystères
+  Et chaque mouvment et action de ses mains et de ses pieds
+  Seront des Mudras Secrêts,
+  Chaque fois qu'il ouvrira la bouche et emettra un son
+  Il s'agira un Mantra.
+  Chaque Etat Mental
+  Sera automatiquement un Samadhi.
+  Toutes les conséquences de ses qualités
+  Seront les Mandalas de son propre Esprit.
+  Qu'il fasse un seul Mudra
+  Sera toujours plus fructueux que de les réaliser tous pour l'Eternité et
+  Qu'il n'emette qu'une fois ce Mantra,
+  Cela surpassera aussi tous les Samadhis
+  Dans les les Trois Cosmes et pratiquer la Merveilleuse Prajna.
+  S'il y'a des créatures qui entendant cela
+  N'y accordent pas de crédit,
+  Elles tomberont dans l'Abiruka
+  Et détruirons leur nature de Bouddha
+  Sans qu'aucun Bouddha ne puisse les sauver.
+  Que dire alors de ceux que ce sujet n'interesse même pas!
+
+Ces vers me furent transmis à moi Kakuban lors de mon Kanjô. Ce qu'ils véhiculent diffèrent considérablement de ce qui peut se dire par ailleurs, aussi ils ne devraient pas être couchés par écrit. Ils concernent au premier chef l'Organe-poumons, mais est tout à fait valable pour les autres Organes.
+
+Voici que prend fin l'Enseignement sur les Cinq Roues.
