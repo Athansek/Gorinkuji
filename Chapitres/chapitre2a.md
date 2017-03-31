@@ -27,6 +27,16 @@ Ces cinq syllabes sont les mots du  mantra qui détruit les quatre démons. La p
 A la manière de la Terre, le «A» fait émerger toutes choses, la Terre du signe «A» fait émerger la myriade des pratiques des six Paramita. «Terre» signifie «Solidité». La Bodaishin est adamantine, non-régressive et se cristallisera nécessairement en une myriade de résultats propices .
 Si le pratiquant lance sa fleur elle atterrit sur la base-mentale (qui est la syllabe « A », la Bodaishin innée) et il plante la graine de l’Éveil. Si il ne subit pas de grande infortune, telles qu'une grave maladie, il atteindra rapidement l’Éveil sans supérieur. Il prendra alors le nom de « Ichijin Rin Ô ».
 
+*T2514_.79.0016d04 / 37*   
+![Les Cinq Emblêmes](https://github.com/Athansek/Gorinkuji/blob/master/Images/cind-embl%C3%AAmes.jpg)
+* Le Dragon bleu: Foie, "Ûn", les Yeux, Cri, le luminaire annuel, Jupiter, la Grande Divinité anuelle (Taisai / Tai sui), Bleu, Bois.
+* Le Phoenix Vermeil: Coeur, "Taraku", Bouche, Parole, Luminaire dangereux, Mars, Divinité punitive annuelle(Tai saigyo/Tai saigei, Rouge, Feu.   
+* Le Guerrier Noir: Rein, "AKU", Oreilles, Fredonner, Etoile Tigre, Mercure, Divinité punitive annuelle), Noir, Eau.
+* Le Tigre Blanc: Poumon, "Kiriku", Nez, Sanglot, Grande Etoile Blanche, Venus, Grand General(Dai Shôgun), Blanc, Metal.
+* Le Dragon Jaune, Rate, "BAN", Langue, Chant, Luminaire protecteur, Saturne, Divinité meritoire annuelle, Jaune, Terre.
+https://ja.wikipedia.org/wiki/%E5%85%AB%E5%B0%86%E7%A5%9E
+
+
 Ne vilipendez pas ce corps qui est le véhicule vers la Bouddhéité. Il vaut mieux médire de l'Enseignement du Shingon et le remettre en cause, que pratiquer les trois véhicules inférieurs. Alors que dire de celui qui peut lancer la fleur  et pratique avec Foi et Discipline! Voici ce que sont la  Croissance et la Maturation de l'«A».
 
 Le Syllabes «BI» exprime la notion de « Lien». Sa représentation avec la syllabe « I» est le Samâdhi sans obstructions qui est la libération inconcevable.  
