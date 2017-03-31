@@ -232,12 +232,14 @@ Les Cinq Organes sont comme un Lotus renversé. Les Cinq Organes internes et les
 Voici ce quiest appelé Nama-rupa. Rupa est formé par les Cinq Elements fondamentaux et les cinq Indirya. Nama est composé des cinq Skandhas mentaux: Samjna etc.
 
 Nama-rupa est le Hôsshin des Six éléments fondamentaux, l'Ainsi-allé des Cinq Sapiences, les Cinq grands Bosatsu et les Cinq grands Myôô. Tous les soleils, les lunes, les Cinq étoiles, les douz mansions, les vingt-huit constellations forment le corps physique de l'Homme.
+
 *T2514_.79.0015a10 / 25*    
 Toutes les choses de la Terre (montagnes, iles, etc.) naissent de l"A".
 Toute eau(rivières, océans etc.) naissent du "BAN".
 Tous les luminaires(or, argent, perles, soleils, lunes, étoiles, coetes et boules de feux...) naissent du "RAN".
 La pousse des cinq céréales, des fruits et des fleurs advient grâce à la syllabe "KAM".
 Toute richesse, qualité méritoires et belle choses(visage, couleurs, saveurs, apparence). Ou la croissance et la maturation d'une personne ou d'un animal intelligent, beau et sentant bon advient dans le "KYAN", et par sa Grâce.
+
 *T2514_.79.0015a14 / 26*    
 Le Sens de l"A" est trés profond: c'est la Nature même de la Vacuité et du Calme. A peine fait on mine de le saisir qu'il n'y a rien à saisir, à peine essaye t'on de le rejetter qu'il n'y a rien à rejetter.
 
@@ -323,18 +325,20 @@ Le Coeur Rouge gouverne le Feu, "TARAKU" est son éveil foncier. "AKU" peut le d
 
 Ainsi par l'Eau Noire de la Qintuple Sapience Originellement Non Née on douche le feu des trois nuances de Rouge, autrement dit les vues fausses, les 160 dispositions d'esprits et les cinq entraves nées de l'Inorance et des Vues Erronées. Le Feu Adamantin Rouge des Graĉes et Vertus des Cinq Sapience Originellement Non Nées de la syllabe "TARAKU" prend alors naissance. Il enfle et ce feu brulant donne naissance à Hôshô Nyôrai de la Byôdo Shô Chi. Ainsi se dévoile la porte du SAmadhi Adamantin des Grâces et Vertus.  
 
-*T2514_.79.0015c28 / 31*   
+*T2514_.79.0015c28 / 31*      
 L'organe "Poumons" est Blanc et gouverne le Métal. "KIRIKU" est son Eveil Foncier, il est surpassé par "TARAKU".
 
 Ceci parce que il est dans la nature du Feu de surpasser le Métal, et par là même le Coeur surpasse les Poumons. La signification intrinsèque de "TARAKU" est plus puissante que la signification extrinsèque de "KIRIKU".
 
 C'est pour cela que Feu Amdantin Rouge des Cinq Sapiences du Sans-naissance brûle et rafine le Métal à la Triple Nuance de Blanc du Samjna illusionné des Cinq Obstacles, les 160 dispositions d'esprits etc qui naissent u samjna illusionné et de l'ignorance. Le vil métal devient le Véritable Métal de la Sapience Admantin des Cinq Sapience du Sans-naissance-foncier. Elle s'amplifie petit à petit et devient la SApience d'Amida Nyôrai, la Myôkanza Chi.    
+
 *T2514_.79.0016a05 / 32*   
 L'Organe des Reins est de couleur Noire et gouverne l'Eau. Son Eveil Foncier est "AKU" et ul est dominé par "BAN".   
 La raison en est que par nature la Terre domine l'Eau, et en cela la signification intrinsèque de "BAN" détruit les caractéristiques exrtinsèques de "AKU".   
 
 C'est ansi que la Terre Jaune Adamantine de la Quintuple Sapience du Sans-naissance enterre l'Eau Noire de trois nuances des cinq obstacles, 160 dispositions d'Esprit etc.  qui surgissent des perseptions illusionnées et de l'ignorance.  
 Elle s'accroit et déborde en tant qu'E au Noire adamantine contenant les huits mérites de la Quintuple Sapience du SAns Naissance. Grossissnat et s'amplifiant les flot donne naissance au Samadhi du Karma-adamantin de Fukujôju: la Jochosa Chi.
+
 *T2514_.79.0016a12 / 33*  
 L'Organe rate est de couleur Jaune et gouverne la Terre. Son Eveil Foncier est "BAN" qui est dominé par "UN".    
 La raison en est que par nature le Bois domine la Terre, et en cela la signification intrinsèque de "UN" détruit les caractéristiques extrinsèques de "BAN".
