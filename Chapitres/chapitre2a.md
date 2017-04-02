@@ -1,6 +1,6 @@
 ## Entrer correctement dans le Shingon profond ##
 *T2514_.79.0012a22 / 7-52*   
-L'Accés au Shingon-Mikkyo est est fondé sur trois membres:
+L'Accés au Shingon-Mikkyo est fondé sur trois membres:
 * la pratique du Mystère du corps ;
 * La pratique du Mystère de la parole ;
 * La pratique du Mystère de l’esprit.
@@ -23,7 +23,9 @@ Ensuite Dainichi Nyôrai entre dans le Samâdhi « Jeu adamantin qui détruit le
 >« NOMAKU SANMANDA BODANAN AK BI RA UN KYAM».
 
 *T2514_.79.0012b09 / 9*      
-Ces cinq syllabes sont les mots du  mantra qui détruit les quatre démons. La première partie signifie prendre refuge dans les trois joyaux. L’«A» signifie  «Action»  et «Sans-naissance fondamental». Les deux points indiquent la purification, la destruction des quatre démons et de la Souffrance. Mais ces points seront approfondis plus tard.  
+Ces cinq Germes sont les mots du  mantra qui détruit les Quatre Démons. La première partie signifie prendre refuge dans les trois joyaux. 
+
+L’«A» signifie  «Action»  et «Sans-naissance fondamental». Les deux points indiquent la purification, la destruction des quatre démons et de la Souffrance. Mais ces points seront approfondis plus tard.  
 A la manière de la Terre, le «A» fait émerger toutes choses, la Terre du signe «A» fait émerger la myriade des pratiques des six Paramita. «Terre» signifie «Solidité». La Bodaishin est adamantine, non-régressive et se cristallisera nécessairement en une myriade de résultats propices .
 Si le pratiquant lance sa fleur elle atterrit sur la base-mentale (qui est la syllabe « A », la Bodaishin innée) et il plante la graine de l’Éveil. Si il ne subit pas de grande infortune, telles qu'une grave maladie, il atteindra rapidement l’Éveil sans supérieur. Il prendra alors le nom de « Ichijin Rin Ô ».
 
