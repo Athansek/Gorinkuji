@@ -234,7 +234,7 @@ Il est dit que “A BA RA KA KYA” devient le Gorinsekkai. Du point de vue du p
 Quand je quittais ma province, le mauvais karma des trois poisons contrôlait mon Esprit pareil à celui du bouc. J'aurais pû dégénérer dans les 8 difficultés et les 3 voies inférieures.  
 Je connaissais les mauvais agissements de mon esprit et avais quitté le foyer d’ignorance qu'était la demeure de mes parents. Je ne cherchais plus la gloire et la célébrité et j'en vins à avoir Foi dans la myriades des ornements de mon propre Esprit. C'était alors la première étape de la connaissance de l'Esprit tel qu'il est.
 
-Comme Chou Ch’u qui se tenait à l’écart des trois dangers, ou Ajase qui regrettait les trois mauvaises actions, je compris le principe du jeûne et de la modération. Je pratiquais fréquemment les huit abstinences et redoublais mes vœux pour obtenir le succès.
+Comme Chou Ch’u(Zhou Chu?) qui se tenait à l’écart des trois dangers, ou Ajase qui regrettait les trois mauvaises actions, je compris le principe du jeûne et de la modération. Je pratiquais fréquemment les huit abstinences et redoublais mes vœux pour obtenir le succès.
 
 Nonobstant la pourpre du Shishinden, qui était la masure héritée des vertus de ma précédente vie, j'en vins à observer la quintuple sphère des perceptions externes agréables et à les trouver tout à fait dépalisantes . Ainsi je franchis la deuxième étape de la connaissance de l'Esprit tel qu'il est.
 
