@@ -1,11 +1,12 @@
 
 
 
-* Gorinkujimyô Hishaku
-*Kakuban*
-*Traduit de l'anglais et du sino-japonais par Maxime Mouysset*
+# Gorinkujimyô Hishaku
+*Ecrit par Kakuban*
 
-** Introduction
+*Traduit de l'anglais et du sino-japonais par*
+
+## Introduction
 *T2514_.79.0011a17/1-2*
 
 A mon humble avis, le Mandala des 5 Roues et celui du Mantra d'Amida Nyôrai à 9 syllabes sont respectivement l'Expérience intérieure d'Eveil(naishô) du Grand Souverain Dainichi Nyôrai et la plus profonde intention de l'Honoré des Mondes Amida. Ils sont l'Accés à l'atteinte de l'Eveil sans supérieur en cette vie et l'unique vrai moyen de l'obtention de la renaissance(junshi ôjô) dans la Terre-pure.
@@ -23,154 +24,154 @@ On peut déplorer les arguties des Maîtres antiques quand à la difficulté ou 
 
 
 Ces mantras seront expliqués en 10 parties:
-•	Déterminer quelle est la doctrine qui enseigne que les Voies provisoires et absolues mènent au même but;
-•	 Entrer correctement dans le Shingon profond;
-•	 L'obtention de mérites incomparables;
-•	 La porte des pratiques mystérieuses que l'on accompli par soi-même;
-•	 Une seule pratique en accompli plusieurs;
-•	 L'Enseignement sur l'obtention de la plus haute des neuf naissances dans la Terre-pure;
-•	 Ôter les obstacles démoniaques à la compréhension éveillée;
-•	 Divers Enseignements sur l'atteinte de la bouddhéité dés ce corps;
-•	 L'Enseignement sur les capacités de ceux à qui l'on doit enseigner;
-•	 Levée des doutes par des questions et des réponses.
-Déterminer quelle est la doctrine qui enseigne que les Voies provisoires et absolues mènent au même but.
+-	Déterminer quelle est la doctrine qui enseigne que les Voies provisoires et absolues mènent au même but;
+-	 Entrer correctement dans le Shingon profond;
+-	 L'obtention de mérites incomparables;
+-	 La porte des pratiques mystérieuses que l'on accompli par soi-même;
+-	 Une seule pratique en accompli plusieurs;
+-	 L'Enseignement sur l'obtention de la plus haute des neuf naissances dans la Terre-pure;
+-	 Ôter les obstacles démoniaques à la compréhension éveillée;
+-	 Divers Enseignements sur l'atteinte de la bouddhéité dés ce corps;
+-	 L'Enseignement sur les capacités de ceux à qui l'on doit enseigner;
+-	 Levée des doutes par des questions et des réponses.
 
-** Déterminer quelle est la doctrine qui enseigne que les Voies provisoires et absolues mènent au même but 
+## Déterminer quelle est la doctrine qui enseigne que les Voies provisoires et absolues mènent au même but
 *T2514_.79.0011b13 / 3-6*
 
 Celui qui désire entrer dans ce Grand Véhicule, suprême, très secret et unificateur, doit pour ce faire développer le Coeur de Prajna(shinyashin) et pratiquer le Triple Mystère.
 
 Si un homme ou une femme de bonne famille franchit le seuil de cet enseignement ne serait-ce qu'un moment, les généraux des 84000 soldats de la souillure mèneront leurs troupes à la soumission, les 160 brigands de l'illusion s'enfuiront avec leurs complices, les quadruples ou octuples transgressions seront emportées par le vent et les mers agitées des 3 ou 5 obstacles(sanshô goshô) seront asséchées.
+
 Grâce à ces pratiques, les entraves karmiques(gôaku) qui entraînent dans l'Océan-des-naissances-et-des-morts(ruten shôji) sont rompues en un instant et les entraves produites par cet océan de souffrances ininterrompues(kukai) sont détruites en un instant. Ensuite les vents illusoires des cinq modes d'existence composite(goshu ui) cessent d'eux mêmes, sans que le pratiquant ne les méprise. Les Trois-classes(sanbu) sont trouvées sans les chercher. Tout cela n'est il pas merveilleux?
 
 Question : Quels sont les sutras et sastra appuient cette manière de penser très profonde(shingi)?  
 Réponse en vers:  
-« La distinction dans la Voie bouddhique entre le Vrai et le conditionné(gonjitsu);  
-L'abandon de l'inférieur pour le supérieur caractérisent la Vérité absolue(shôge).  
-La distinction du profond et du bas-fond dans l'océan des phénomènes individués;  
-La non-naissance d'appropriations illusionnées sont appelés Hannya.  
-Le Corps de Loi en félicité qu'est Dainchi Nyôrai, les Bouddha altruistes;  
-Kongosatta le vénéré aux merveilleuses vertus, les Bouddha d'Alors, Ryûmyo Bosatsu;  
-Toutes ces incarnations du Bouddhas ont expliqués dans leurs écrits comment s'opère cette distinction.  
-En effet ce sont les Écritures exposées par les Bouddhas et leurs Traces qui expliquent le principe de discrimination.  
-Qui veut atteindre rapidement la Bouddhéité doit pratiquer cette attitude mentale.»  
+>« La distinction dans la Voie bouddhique entre le Vrai et le conditionné(gonjitsu);  
+>L'abandon de l'inférieur pour le supérieur caractérisent la Vérité absolue(shôge).  
+>La distinction du profond et du bas-fond dans l'océan des phénomènes individués;  
+>La non-naissance d'appropriations illusionnées sont appelés Hannya.  
+>Le Corps de Loi en félicité qu'est Dainchi Nyôrai, les Bouddha altruistes;  
+>Kongosatta le vénéré aux merveilleuses vertus, les Bouddha d'Alors, Ryûmyo Bosatsu;  
+>Toutes ces incarnations du Bouddhas ont expliqués dans leurs écrits comment s'opère cette distinction.  
+>En effet ce sont les Écritures exposées par les Bouddhas et leurs Traces qui expliquent le principe de discrimination.  
+>Qui veut atteindre rapidement la Bouddhéité doit pratiquer cette attitude mentale.»  
 
 Question: Combien y a t’il de voies bouddhistes? Combien sont provisoires et combien sont absolues? Lesquelles sont étroites et lesquelles sont profondes?  
 Réponse en vers:   
-« L'homme au désirs de bouc(ishô eiyôshin) ressent la honte quand il prend conscience du mal qu'il commet, c'est le point de départ.  
-L’enfant ignorant qui comprend les règles de l'abstinence de nouriture(jisai) commence  à cultiver les vertus.  
-Le nourrisson sans craintes est le stage des êtres divins(tenjô);    
-Seulement les Cinq Skadha(goon) et pas de Soi(muga), c’est le véhicule des auditeurs(shômon);  
-Le stade de l'arrachage des graines du karma(gôin) se trouve à Kakujô;  
-Le stade du Mahayana consacré aux autres est la maison du Yuishiki;  
-Le stade de la non-production de l'esprit(fushô) est celui du Sanron Shû;  
-Le stade où l'Esprit est en harmonie avec l'homogénéité(mujishô) du Véhicule Unique est le palais du Lotus.
-L’absence absolue de nature-propre est l’enseignement du Kegon;  
-L’Enseignement du Shingon est Orné par les  Mystères.  
-Les neufs stages initiaux sont appelés étroits(sen) et provisoires(gon);  
-L’ultime, l’Esprit-uni est appelé profond et absolu;  
-Bien que chacun soit appelé une merveilleuse réalisation, il n’est pas le Bouddha véritable.  
-Comment un mirroir rond(enkyô) au millieu de l'eau(suichû) peut il être la Vérité?  
-Au surplus, bien qu’appelés des enseignements-parfaits(enkyô), ils ne sont que des véhicules imparfaits.  
-Il n’y a pas de vérité dans les bulles(hô) de la surface du lac.  
-Les chemins graduels menant du bas-fond au profond sont les étapes successives de l’abandon de l’inférieur pour la saisie du supérieur. »  
+>« L'homme au désirs de bouc(ishô eiyôshin) ressent la honte quand il prend conscience du mal qu'il commet, c'est le point de départ.  
+>L’enfant ignorant qui comprend les règles de l'abstinence de nouriture(jisai) commence  à cultiver les vertus.  
+>Le nourrisson sans craintes est le stage des êtres divins(tenjô);    
+>Seulement les Cinq Skadha(goon) et pas de Soi(muga), c’est le véhicule des auditeurs(shômon);  
+>Le stade de l'arrachage des graines du karma(gôin) se trouve à Kakujô;  
+>Le stade du Mahayana consacré aux autres est la maison du Yuishiki;  
+>Le stade de la non-production de l'esprit(fushô) est celui du Sanron Shû;  
+>Le stade où l'Esprit est en harmonie avec l'homogénéité(mujishô) du Véhicule Unique est le palais du Lotus.
+>L’absence absolue de nature-propre est l’enseignement du Kegon;  
+>L’Enseignement du Shingon est Orné par les  Mystères.  
+>Les neufs stages initiaux sont appelés étroits(sen) et provisoires(gon);  
+>L’ultime, l’Esprit-uni est appelé profond et absolu;  
+>Bien que chacun soit appelé une merveilleuse réalisation, il n’est pas le Bouddha véritable.  
+>Comment un mirroir rond(enkyô) au millieu de l'eau(suichû) peut il être la Vérité?  
+>Au surplus, bien qu’appelés des enseignements-parfaits(enkyô), ils ne sont que des véhicules imparfaits.  
+>Il n’y a pas de vérité dans les bulles(hô) de la surface du lac.  
+>Les chemins graduels menant du bas-fond au profond sont les étapes successives de l’abandon de l’inférieur pour la saisie du supérieur. »  
 
 Question : Quelle est la différence entre le « Bouddha des neufs types d’enseignement »(Kushu kyodobu) et la « Voie bouddhique  unique de la réalisation suprême du Shingon »(ishu shingon shô dôson).  
 Réponse en vers:   
-« Le Bouddha exotérique est à la fois ignorant(mumyô) et non-illuminé(himyô).  
-Le Bouddha de l’ésotérisme épuise l’illusion(meimo) et ne laisse aucun résidu(muyo).  
-L'Enseignement explicite(kengyô) est une explication(setsu) faite par les deux corps métamorphiques.  
-Le Mikkyo est l'Unique Enseignement, celui du Hôshin.  
-Le Kengyô est adapté aux facultés mentales d'autrui(suizuita).  
-Le Mikkyô est conçu comme l’enseignement en accord avec les pensées de Dainichi Nyôrai.  
-L’Exotérique est l’enseignement provisoire et approprié à une situation donnée.  
-L’Esotérique est l’enseignement absolu, fondamental et final.  
-L’Exotérique passe trois kalpa(sankô) à atteindre la bouddhéité.  
-L’Esotérique consomme la Voie Bouddhique en une vie(isshô).  
-L’Exotérisme explique le nom d’un ou deux Dharmakaya.  
-L’Ésotérisme, en a quatre voire cinq voire une infinité.  
-L’Exotérisme contient un peu de théorie ésotérique, le Mikkyo contient la théorie et la pratique.  
-L’Exotérisme semble enseigner la suppression des passions, l'Ésotérisme enseigne la suppression des passions et la manifestation de qualités positives.  
-Le Bouddhisme exotérique enseigne les choses bienfaisantes, l'Ésotérisme en enseigne le samadhi.  
-Le bouddhisme exotérique explique les causes de la bouddhéité.  
-Le Shingon enseigne le résultat de la Bouddhéité.  
-Dans le Bouddhisme exotérique il y’ a une mer de pratiques causales menant à l'état de Bouddha.  
-Dans le Shingon il y’a la parfaite mer de vertus de l'état de Bouddha.  
-L’Exotérique explique les bases d’une réalité qui est l’Esprit-Un.  
-L’Ésotérisme explique l’égalité des trois mystères.  
-Le Bouddhisme Exotérique explique l’Esprit-Un de toute choses.  
-L’Ésotérisme explique d’innombrables esprits-un.  
-L’Exotérisme n’ explique pas les réalités sans nombre.  
-L’Ésotérisme explique le principe du Filet d’Indra.  
-L’Exotérisme fait du principe la base de toutes formes.  
-L’Ésotérisme explique que le principe est la forme indestructible.  
-L'Exotérisme dit que le principe est ineffable.  
-L’ Ésotérisme explique que l'expression du principe a d'innombrables modalités.  
-Dans le bouddhisme Exotérique l'Hôsshin n'expose pas les enseignements.  
-Dans le bouddhisme Ésotérique les quatre corps exposent les enseignements.  
-L’Exotérisme explique que les quatre aspirations universels dépasse pratiques et promesses.  
-L’Ésotérisme établit cinq serments en tant que pratiques et promesses.  
-Dans l’Exotérisme, le Hôsshin est un et sans aréopage.  
-Dans l’Ésotérisme chaque Hôsshin a un aréopage.  
-Dans l’Exotérisme le Bouddha du principe et de la sagesse n’œuvre pas pour le bien des êtres.  
-Dans l’Ésotérisme, ils œuvrent dans les trois temps à la salvation des êtres.  
-L’Exotérique réalise le principe d'une seule réalité absolue.  
-L’Ésotérisme réalise d’indicibles et innombrables réalités absolues.  
-L’Exotérisme explique de sérieux obstacle qui empêchent l’Eveil.  
-Dans l’Ésotérisme, bien qu’il ait des obstacles, l’Eveil est toujours obtenu.  
-Dans l’Exotérisme, sans la contemplation profonde on obtient pas le Fruit.  
-Dans l’Ésotérisme, en ne déclarant qu’un shingon on devient aussi un Bouddha.  
-L’Exotérisme est l’enseignement des boddhisattvas et de Maîtres Humains.  
-L’Ésotérisme est l’enseignement des quatre Dharmakaya.  
-Le bouddhisme Exotérique est l’acmé, le déclin de la Vraie Loi, son imitation et sa disparition.  
-Le Shingon est l’éternel et immuable enseignement.  
-Le bouddhisme Ésotérique est l’exposition de la naissance par des causes directes et secondaires.  
-Le bouddhisme ésotérique enseigne la vérité elle-même.  
-Le Bouddhisme Exotérique explique un sujet avec maints noms et phrases.  
-L’Ésotérisme incorpore maints sens dans le principe d’une syllabe.  
-Le bouddhisme exotérique est la parole du Hoshin et du Oshin.  
-Le bouddhisme Ésotérique est celle du Hôsshin pour son propre plaisir.  
-L’Exotérisme explique la théorie d’un principe et maints phénomènes.  
-Le bouddhisme Ésotérique est expose tous les phénomènes comme étant semblables et différents.  
-Le bouddhisme Exotérique est l’enseignement qui explique juste un peu les caractéristiques d’une syllabe.  
-Le bouddhisme Ésotérique est le principe, les caractéristiques et le sens d’une syllabe.  
-L’Exotérisme n’explique pas les quatre mandalas; L’Ésotérisme oui.  
-L’Exotérisme n’explique pas les cinq étapes de l’Eveil; l’Ésotérisme oui.  
-L’Exotérisme n’explique pas les Cinq Sagesse; L’Ésotérisme oui.  
-Les six éléments éléments de l'exotérisme sont étroits dans leur explication; dans l'Ésotérisme ils sont profonds et étendus.  
-L’Exotérisme obfusque les trois mystères; L’Ésotérisme les explique jusqu'au bout.  
-L’Exotérisme obfusque les Trois Familles; l’Ésotérisme les explique jusqu'au bout.  
-L’Exotérisme n'explique pas les deux mandalas; seul l’Ésotérisme les explique.  
-L’Exotérisme n’a pas de théorie de l’Eveil par une visualisation.  
-L’Exotérisme n’a pas l’Eveil par la visualisation des syllabes.  
-L’Exotérisme n’a pas de théorie de l’Eveil par les mudras.  
-L’Exotérisme révèle une bouddhéité déjà atteinte il y’a cinq cents kalpas.  
-L’Ésotérisme enseigne une voie de perfection sans naissance.  
+>« Le Bouddha exotérique est à la fois ignorant(mumyô) et non-illuminé(himyô).  
+>Le Bouddha de l’ésotérisme épuise l’illusion(meimo) et ne laisse aucun résidu(muyo).  
+>L'Enseignement explicite(kengyô) est une explication(setsu) faite par les deux corps métamorphiques.  
+>Le Mikkyo est l'Unique Enseignement, celui du Hôshin.  
+>Le Kengyô est adapté aux facultés mentales d'autrui(suizuita).  
+>Le Mikkyô est conçu comme l’enseignement en accord avec les pensées de Dainichi Nyôrai.  
+>L’Exotérique est l’enseignement provisoire et approprié à une situation donnée.  
+>L’Esotérique est l’enseignement absolu, fondamental et final.  
+>L’Exotérique passe trois kalpa(sankô) à atteindre la bouddhéité.  
+>L’Esotérique consomme la Voie Bouddhique en une vie(isshô).  
+>L’Exotérisme explique le nom d’un ou deux Dharmakaya.  
+>L’Ésotérisme, en a quatre voire cinq voire une infinité.  
+>L’Exotérisme contient un peu de théorie ésotérique, le Mikkyo contient la théorie et la pratique.  
+>L’Exotérisme semble enseigner la suppression des passions, l'Ésotérisme enseigne la suppression des passions et la manifestation de qualités positives.  
+>Le Bouddhisme exotérique enseigne les choses bienfaisantes, l'Ésotérisme en enseigne le samadhi.  
+>Le bouddhisme exotérique explique les causes de la bouddhéité.  
+>Le Shingon enseigne le résultat de la Bouddhéité.  
+>Dans le Bouddhisme exotérique il y’ a une mer de pratiques causales menant à l'état de Bouddha.  
+>Dans le Shingon il y’a la parfaite mer de vertus de l'état de Bouddha.  
+>L’Exotérique explique les bases d’une réalité qui est l’Esprit-Un.  
+>L’Ésotérisme explique l’égalité des trois mystères.  
+>Le Bouddhisme Exotérique explique l’Esprit-Un de toute choses.  
+>L’Ésotérisme explique d’innombrables esprits-un.  
+>L’Exotérisme n’ explique pas les réalités sans nombre.  
+>L’Ésotérisme explique le principe du Filet d’Indra.  
+>L’Exotérisme fait du principe la base de toutes formes.  
+>L’Ésotérisme explique que le principe est la forme indestructible.  
+>L'Exotérisme dit que le principe est ineffable.  
+>L’ Ésotérisme explique que l'expression du principe a d'innombrables modalités.  
+>Dans le bouddhisme Exotérique l'Hôsshin n'expose pas les enseignements.  
+>Dans le bouddhisme Ésotérique les quatre corps exposent les enseignements.  
+>L’Exotérisme explique que les quatre aspirations universels dépasse pratiques et promesses.  
+>L’Ésotérisme établit cinq serments en tant que pratiques et promesses.  
+>Dans l’Exotérisme, le Hôsshin est un et sans aréopage.  
+>Dans l’Ésotérisme chaque Hôsshin a un aréopage.  
+>Dans l’Exotérisme le Bouddha du principe et de la sagesse n’œuvre pas pour le bien des êtres.  
+>Dans l’Ésotérisme, ils œuvrent dans les trois temps à la salvation des êtres.  
+>L’Exotérique réalise le principe d'une seule réalité absolue.  
+>L’Ésotérisme réalise d’indicibles et innombrables réalités absolues.  
+>L’Exotérisme explique de sérieux obstacle qui empêchent l’Eveil.  
+>Dans l’Ésotérisme, bien qu’il ait des obstacles, l’Eveil est toujours obtenu.  
+>Dans l’Exotérisme, sans la contemplation profonde on obtient pas le Fruit.  
+>Dans l’Ésotérisme, en ne déclarant qu’un shingon on devient aussi un Bouddha.  
+>L’Exotérisme est l’enseignement des boddhisattvas et de Maîtres Humains.  
+>L’Ésotérisme est l’enseignement des quatre Dharmakaya.  
+>Le bouddhisme Exotérique est l’acmé, le déclin de la Vraie Loi, son imitation et sa disparition.  
+>Le Shingon est l’éternel et immuable enseignement.  
+>Le bouddhisme Ésotérique est l’exposition de la naissance par des causes directes et secondaires.  
+>Le bouddhisme ésotérique enseigne la vérité elle-même.  
+>Le Bouddhisme Exotérique explique un sujet avec maints noms et phrases.  
+>L’Ésotérisme incorpore maints sens dans le principe d’une syllabe.  
+>Le bouddhisme exotérique est la parole du Hoshin et du Oshin.  
+>Le bouddhisme Ésotérique est celle du Hôsshin pour son propre plaisir.  
+>L’Exotérisme explique la théorie d’un principe et maints phénomènes.  
+>Le bouddhisme Ésotérique est expose tous les phénomènes comme étant semblables et différents.  
+>Le bouddhisme Exotérique est l’enseignement qui explique juste un peu les caractéristiques d’une syllabe.  
+>Le bouddhisme Ésotérique est le principe, les caractéristiques et le sens d’une syllabe.  
+>L’Exotérisme n’explique pas les quatre mandalas; L’Ésotérisme oui.  
+>L’Exotérisme n’explique pas les cinq étapes de l’Eveil; l’Ésotérisme oui.  
+>L’Exotérisme n’explique pas les Cinq Sagesse; L’Ésotérisme oui.  
+>Les six éléments éléments de l'exotérisme sont étroits dans leur explication; dans l'Ésotérisme ils sont profonds et étendus.  
+>L’Exotérisme obfusque les trois mystères; L’Ésotérisme les explique jusqu'au bout.  
+>L’Exotérisme obfusque les Trois Familles; l’Ésotérisme les explique jusqu'au bout.  
+>L’Exotérisme n'explique pas les deux mandalas; seul l’Ésotérisme les explique.  
+>L’Exotérisme n’a pas de théorie de l’Eveil par une visualisation.  
+>L’Exotérisme n’a pas l’Eveil par la visualisation des syllabes.  
+>L’Exotérisme n’a pas de théorie de l’Eveil par les mudras.  
+>L’Exotérisme révèle une bouddhéité déjà atteinte il y’a cinq cents kalpas.  
+>L’Ésotérisme enseigne une voie de perfection sans naissance.  
 
 A cause des différences susnommées le Mikkyo est l'Enseignement profond.
-** Entrer correctement dans le Shingon profond
+## Entrer correctement dans le Shingon profond
 *T2514_.79.0012a22 / 7-52*  
 L'Accés au Shingon-Mikkyo est fondé sur trois membres:
-•	La pratique du Mystère du corps ;
-•	La pratique du Mystère de la parole ;
-•	La pratique du Mystère de l’esprit.
+- La pratique du Mystère du corps ;
+- La pratique du Mystère de la parole ;
+- La pratique du Mystère de l’esprit.
 
 La pratique du Mystère de la parole est en elle-même triple :
-•	La pratique de la récitation en pleine conscience(juji) ;
-•	La pratique de la méditation sur le forme des Syllabes et sur leur sens réel(nikan);
-•	La pratique de l'Exercice à l'Intellection SApientielle par la Syllabe(kaiji).
+- La pratique de la récitation en pleine conscience(juji) ;
+- La pratique de la méditation sur le forme des Syllabes et sur leur sens réel(nikan);
+- La pratique de l'Exercice à l'Intellection SApientielle par la Syllabe(kaiji).
 
 La pratique de la récitation des Mantras doit se faire avec attention car elle ne peut pas souffrir de fautes dans les mots ou les phrases. La pratique de la méditation sur la forme des Syllabes quant à elle est la méditation sur l'aspect extérieur des graphèmes. Si on visualise et observe le Germe “ON” sur le bout du nez et on atteint la Bodhi(tokubodai) après la nuit.
 
 Réaliser le sens des  syllabes veut dire comprendre complètement la Vérité sous-jacente à chaque syllabe sous deux rapports:
-•	L'explication sommaire du sens de chaque syllabe qui est l’Enseignement du Hôsshin sur les 5 Roues et les 5 Sapiences ;
-•	L'explication qui embrasse la totalité du Hôkkai Hôsshin qui est l’enseignement du « Bouddha en corps de rétribution »(hôsshin)  sur les 9 syllabes et les 9 niveaux(kuhon) de naissance dans la Terre-pure d'Amida.
+- L'explication sommaire du sens de chaque syllabe qui est l’Enseignement du Hôsshin sur les 5 Roues et les 5 Sapiences ;
+- L'explication qui embrasse la totalité du Hôkkai Hôsshin qui est l’enseignement du « Bouddha en corps de rétribution »(hôsshin)  sur les 9 syllabes et les 9 niveaux(kuhon) de naissance dans la Terre-pure d'Amida.
 
 Makabiroshana, le Corps de Loi fondamental(honji hôsshin), entre dans le Samâdhi  Issai nyôrai ittai sokushitsuriki zanmai(acquisition instantanée des pouvoirs extraordinaires de tous les Bouddhas) pour enseigner(seppô) le Samâdhi de « L’Essence de la Dimension (du Réel)»(kaitaisho) et s'exclame :
-« Je réalise l' Incréation Fondamentale qui transcende tout discours. Tous les péchés sont dissous. Je ne suis plus soumis aux causes directes et secondaires. Je réalise que la vacuité est comme l’Espace.».
+>« Je réalise l' Incréation Fondamentale qui transcende tout discours. Tous les péchés sont dissous. Je ne suis plus soumis aux >causes directes et secondaires. Je réalise que la vacuité est comme l’Espace.».
 
  Dainichi Nyôrai entre ensuite dans le Samâdhi « Jeu adamantin qui soumet les quatre démons »(gôbuku kongôke sanmai) et incante la stance adamantine(kongoku) de la Sapience Omnisapientielle qui soumet les quatre démons et sauve des renaissances dans les Six destinées(gôbuku shima gedatsu rokushu issaichi chi):
-« NOMAKU SANMANDA BODANAN AK BI RA UN KYAM».
+>"NOMAKU SANMANDA BODANAN AK BI RA UN KYAM».
 
 *T2514_.79.0012b09 / 9*      
 Ces cinq Germes sont les mots du  mantra qui soumet les Quatre Démons. La première partie signifie prendre refuge dans les trois joyaux(kimyo sanbô).
