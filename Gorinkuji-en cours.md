@@ -1,11 +1,11 @@
 
 
 
-Gorinkujimyô Hishaku
-Kakuban
-Traduit de l'anglais et du sino-japonais par Maxime Mouysset
+* Gorinkujimyô Hishaku
+*Kakuban*
+*Traduit de l'anglais et du sino-japonais par Maxime Mouysset*
 
-Introduction
+** Introduction
 *T2514_.79.0011a17/1-2*
 
 A mon humble avis, le Mandala des 5 Roues et celui du Mantra d'Amida Nyôrai à 9 syllabes sont respectivement l'Expérience intérieure d'Eveil(naishô) du Grand Souverain Dainichi Nyôrai et la plus profonde intention de l'Honoré des Mondes Amida. Ils sont l'Accés à l'atteinte de l'Eveil sans supérieur en cette vie et l'unique vrai moyen de l'obtention de la renaissance(junshi ôjô) dans la Terre-pure.
@@ -34,6 +34,8 @@ Ces mantras seront expliqués en 10 parties:
 •	 L'Enseignement sur les capacités de ceux à qui l'on doit enseigner;
 •	 Levée des doutes par des questions et des réponses.
 Déterminer quelle est la doctrine qui enseigne que les Voies provisoires et absolues mènent au même but.
+
+** Déterminer quelle est la doctrine qui enseigne que les Voies provisoires et absolues mènent au même but 
 *T2514_.79.0011b13 / 3-6*
 
 Celui qui désire entrer dans ce Grand Véhicule, suprême, très secret et unificateur, doit pour ce faire développer le Coeur de Prajna(shinyashin) et pratiquer le Triple Mystère.
@@ -146,8 +148,8 @@ L’Exotérisme révèle une bouddhéité déjà atteinte il y’a cinq cents ka
 L’Ésotérisme enseigne une voie de perfection sans naissance.  
 
 A cause des différences susnommées le Mikkyo est l'Enseignement profond.
-Entrer correctement dans le Shingon profond
-T2514_.79.0012a22 / 7-52  
+** Entrer correctement dans le Shingon profond
+*T2514_.79.0012a22 / 7-52*  
 L'Accés au Shingon-Mikkyo est fondé sur trois membres:
 •	La pratique du Mystère du corps ;
 •	La pratique du Mystère de la parole ;
