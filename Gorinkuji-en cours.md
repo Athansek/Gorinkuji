@@ -87,50 +87,50 @@ Réponse en vers:
 >L’Exotérique est l’enseignement provisoire et approprié à une situation donnée.  
 >L’Esotérique est l’enseignement absolu, fondamental et final.  
 >L’Exotérique passe trois kalpa(sankô) à atteindre la bouddhéité.  
->L’Esotérique consomme la Voie Bouddhique en une vie(isshô).  
->L’Exotérisme explique le nom d’un ou deux Dharmakaya.  
->L’Ésotérisme, en a quatre voire cinq voire une infinité.  
+>L’Esotérique consomme la Voie Bouddhique(shobutusdô) en une vie(isshô).
+>L’Exotérisme explique le nom d’un ou deux Dharmakaya(hôsshinmyô).
+>L’Ésotérisme, en a quatre voire cinq voire une infinité.
 >L’Exotérisme contient un peu de théorie ésotérique, le Mikkyo contient la théorie et la pratique.  
->L’Exotérisme semble enseigner la suppression des passions, l'Ésotérisme enseigne la suppression des passions et la manifestation de qualités positives.  
+>L’Exotérisme semble enseigner la suppression des passions, l'Ésotérisme enseigne la suppression des passions et la manifestation de qualités positives(hyotoku).  
 >Le Bouddhisme exotérique enseigne les choses bienfaisantes, l'Ésotérisme en enseigne le samadhi.  
->Le bouddhisme exotérique explique les causes de la bouddhéité.  
->Le Shingon enseigne le résultat de la Bouddhéité.  
+>Le bouddhisme exotérique explique les causes de la bouddhéité(inbun kasetsu).  
+>Le Shingon enseigne le résultat de la Bouddhéité(kabun kasetsu).  
 >Dans le Bouddhisme exotérique il y’ a une mer de pratiques causales menant à l'état de Bouddha.  
->Dans le Shingon il y’a la parfaite mer de vertus de l'état de Bouddha.  
+>Dans le Shingon il y’a la parfaite mer de vertus de l'état de Bouddha(tokuenmankai).  
 >L’Exotérique explique les bases d’une réalité qui est l’Esprit-Un.  
 >L’Ésotérisme explique l’égalité des trois mystères.  
 >Le Bouddhisme Exotérique explique l’Esprit-Un de toute choses.  
 >L’Ésotérisme explique d’innombrables esprits-un.  
 >L’Exotérisme n’ explique pas les réalités sans nombre.  
->L’Ésotérisme explique le principe du Filet d’Indra.  
->L’Exotérisme fait du principe la base de toutes formes.  
->L’Ésotérisme explique que le principe est la forme indestructible.  
->L'Exotérisme dit que le principe est ineffable.  
->L’ Ésotérisme explique que l'expression du principe a d'innombrables modalités.  
+>L’Ésotérisme explique le principe du Filet d’Indra(juju taimô).
+>L’Exotérisme fait du principe la base de toutes formes(shushiki).  
+>L’Ésotérisme explique que le principe est la forme indestructible(ejiki).  
+>L'Exotérisme dit que le principe est ineffable(mugongo).  
+>L’ Ésotérisme explique que l'expression du principe a d'innombrables(muryo) modalités.  
 >Dans le bouddhisme Exotérique l'Hôsshin n'expose pas les enseignements.  
 >Dans le bouddhisme Ésotérique les quatre corps exposent les enseignements.  
->L’Exotérisme explique que les quatre aspirations universels dépasse pratiques et promesses.  
->L’Ésotérisme établit cinq serments en tant que pratiques et promesses.  
->Dans l’Exotérisme, le Hôsshin est un et sans aréopage.  
->Dans l’Ésotérisme chaque Hôsshin a un aréopage.  
->Dans l’Exotérisme le Bouddha du principe et de la sagesse n’œuvre pas pour le bien des êtres.  
->Dans l’Ésotérisme, ils œuvrent dans les trois temps à la salvation des êtres.  
->L’Exotérique réalise le principe d'une seule réalité absolue.  
+>L’Exotérisme explique que les quatre aspirations universelles(shikyoshingujô) dépassent pratiques et promesses.  
+>L’Ésotérisme établit cinq serments(gosei) en tant que pratiques et promesses.  
+>Dans l’Exotérisme, le Hôsshin est un et sans aréopage(mukenzoku).  
+>Dans l’Ésotérisme chaque Hôsshin(chacun des quatre hôsshin:shishoku) a un aréopage.  
+>Dans l’Exotérisme le Bouddha du principe et de la sagesse n’œuvre pas pour le bien des êtres(rishô).
+>Dans l’Ésotérisme, ils œuvrent dans les trois temps à la salvation des êtres(dôshyô).
+>L’Exotérique réalise le principe d'une seule réalité absolue(shinnyo ri).  
 >L’Ésotérisme réalise d’indicibles et innombrables réalités absolues.  
->L’Exotérisme explique de sérieux obstacle qui empêchent l’Eveil.  
->Dans l’Ésotérisme, bien qu’il ait des obstacles, l’Eveil est toujours obtenu.  
+>L’Exotérisme explique de sérieux obstacles(jusho) qui empêchent l’Eveil(fukenbutsu).  
+>Dans l’Ésotérisme, bien qu’il ait des obstacles, l’Eveil(kenbutsu) est toujours obtenu.  
 >Dans l’Exotérisme, sans la contemplation profonde on obtient pas le Fruit.  
 >Dans l’Ésotérisme, en ne déclarant qu’un shingon on devient aussi un Bouddha.  
 >L’Exotérisme est l’enseignement des boddhisattvas et de Maîtres Humains.  
 >L’Ésotérisme est l’enseignement des quatre Dharmakaya.  
->Le bouddhisme Exotérique est l’acmé, le déclin de la Vraie Loi, son imitation et sa disparition.  
->Le Shingon est l’éternel et immuable enseignement.  
->Le bouddhisme Ésotérique est l’exposition de la naissance par des causes directes et secondaires.  
->Le bouddhisme ésotérique enseigne la vérité elle-même.  
->Le Bouddhisme Exotérique explique un sujet avec maints noms et phrases.  
+>Le bouddhisme Exotérique est l’acmé(shô), le déclin(zô) de la Vraie Loi, son imitation et sa disparition.  
+>Le Shingon est l’éternel et immuable(jôju fuhen) enseignement.  
+>Le bouddhisme Ésotérique est l’exposition de la naissance par des causes directes(innen shoshô) et secondaires.  
+>Le bouddhisme ésotérique enseigne la vérité elle-même(hôni jisshô).
+>Le Bouddhisme Exotérique explique un sujet avec maints noms et phrases.  
 >L’Ésotérisme incorpore maints sens dans le principe d’une syllabe.  
 >Le bouddhisme exotérique est la parole du Hoshin et du Oshin.  
->Le bouddhisme Ésotérique est celle du Hôsshin pour son propre plaisir.  
+>Le bouddhisme Ésotérique est celle du Hôsshin pour son propre plaisir(jijû horaku).
 >L’Exotérisme explique la théorie d’un principe et maints phénomènes.  
 >Le bouddhisme Ésotérique est expose tous les phénomènes comme étant semblables et différents.  
 >Le bouddhisme Exotérique est l’enseignement qui explique juste un peu les caractéristiques d’une syllabe.  
@@ -143,10 +143,10 @@ Réponse en vers:
 >L’Exotérisme obfusque les Trois Familles; l’Ésotérisme les explique jusqu'au bout.  
 >L’Exotérisme n'explique pas les deux mandalas; seul l’Ésotérisme les explique.  
 >L’Exotérisme n’a pas de théorie de l’Eveil par une visualisation.  
->L’Exotérisme n’a pas l’Eveil par la visualisation des syllabes.  
+>L’Exotérisme n’a pas l’Eveil par la visualisation des syllabes(kanji).  
 >L’Exotérisme n’a pas de théorie de l’Eveil par les mudras.  
->L’Exotérisme révèle une bouddhéité déjà atteinte il y’a cinq cents kalpas.  
->L’Ésotérisme enseigne une voie de perfection sans naissance.  
+>L’Exotérisme révèle une bouddhéité déjà atteinte il y’a cinq cents kalpas(gohyaku jinden).  
+>L’Ésotérisme enseigne une voie de perfection sans naissance(fushô jôdô).  
 
 A cause des différences susnommées le Mikkyo est l'Enseignement profond.
 ## Entrer correctement dans le Shingon profond
