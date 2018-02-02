@@ -231,15 +231,16 @@ Dans le Kongôkai, la syllabe « BAN » se transforme en les Cinq Roues. Dans le
 Il est dit que “A BA RA KA KYA” devient le Gorinsekkai. Du point de vue du pratiquant on pourrait dire que son pur esprit de foi devient les germes des cinq Roues. Cet esprit de pure Foi est pure Bodaishin. C’est cela connaître son esprit tel qu’il est. Verticalement ce sont les dix niveaux de profondeur et horizontalement l'étendue et l'infinité des manifestations de l'Esprit.
 
 *T2514_.79.0013a23 / 13*    
-Quand je quittais ma province, le mauvais karma des trois poisons contrôlait mon Esprit pareil à celui du bouc. J'aurais pû dégénérer dans les 8 difficultés et les 3 voies inférieures.  
-Je connaissais les mauvais agissements de mon esprit et avais quitté le foyer d’ignorance qu'était la demeure de mes parents. Je ne cherchais plus la gloire et la célébrité et j'en vins à avoir Foi dans la myriades des ornements de mon propre Esprit. C'était alors la première étape de la connaissance de l'Esprit tel qu'il est.
+Quand je quittais ma province, le mauvais karma des trois poisons(sandoku) contrôlait mon Esprit pareil à celui du bouc. J'aurais pû dégénérer dans les 8 difficultés et les 3 voies inférieures(sanzu hachinan).  
+Je connaissais les mauvais agissements de mon esprit(nyojitsu chi jishin) et avais quitté le foyer d’ignorance qu'était la demeure de mes parents(mumyô fumo). Je ne cherchais plus la gloire et la célébrité(myôri) et j'en vins à avoir Foi dans la myriades des ornements(shôgon) de mon propre Esprit(jiyô). C'était alors la première étape de la connaissance de l'Esprit tel qu'il est.
 
-Comme Chou Ch’u(Zhou Chu?) qui se tenait à l’écart des trois dangers, ou Ajase qui regrettait les trois mauvaises actions, je compris le principe du jeûne et de la modération. Je pratiquais fréquemment les huit abstinences et redoublais mes vœux pour obtenir le succès.
+Comme Zhô Chù**(faire une note sur lui)** qui se tenait à l’écart des trois dangers, ou Ajase qui regrettait les trois mauvaises actions(sangai), je compris le principe du jeûne et de la modération(jisai). Je pratiquais fréquemment**(contre senst T donne de temps en temps)** les huit abstinences(hachi kan) et redoublais mes vœux pour obtenir le succès.
 
-Nonobstant la pourpre du Shishinden, qui était la masure héritée des vertus de ma précédente vie, j'en vins à observer la quintuple sphère des perceptions externes agréables et à les trouver tout à fait dépalisantes . Ainsi je franchis la deuxième étape de la connaissance de l'Esprit tel qu'il est.
+Nonobstant la pourpre(shi) du Shishinden, qui était la masure héritée des vertus de ma précédente vie, j'en vins à observer la quintuple sphère des perceptions externes agréables et à les trouver tout à fait dépalisantes**(T donne "Je finis par me lasser des meeveilleux objets que je voyais soumis que j'étais aux cinq désirs)**  . Ainsi je franchis la deuxième étape de la connaissance de l'Esprit tel qu'il est.
 
-La haute plateforme du premier dhyana m'étaient devenues l'objet d'une fierté passée. J'y avait vécu la joie d'être separé de mon Soi naturel, cette sensation ne s'est jamais arrêtée, c'est ainsi que j'ai vraiment su que mon Esprit est enfantin.
-J'ai ensuite compris graduellement que ce monde est une maison de bois en flamme. Je somnolais dans la chambre des Shômon et des Engaku. Je compris finalement que cet état étaint l'extinction mineure du véhicule inférieur et que je n'avais eu que le goût de la vacuité des Êtres.
+La haute plateforme du premier dhyana(shozen: concentration qui donne accés à la renaissance dans le prmier ciel de concentration) m'étaient devenues l'objet d'une fierté passée. J'y avait vécu le délice(kiraku) d'être separé de mon Soi naturel, cette sensation ne s'est jamais arrêtée, c'est ainsi que j'ai vraiment su que mon Esprit est enfantin(eidô).
+
+J'ai ensuite compris graduellement que ce monde est une maison de bois en flamme(hi no ie). Je somnolais dans la chambre des Shômon et des Engaku(shôen). Je compris finalement que cet état étaint l'extinction mineure du véhicule inférieur et que je n'avais eu que l'avant-goût de de la vacuité des Êtres(mijako sho kuri).
 
 Dans les sphères de "l’Esprit-dédié-aux-autres" et de l'"Arrêt des verbalisations" et je me suis rendu compte que ces écoles postulent différentes natures d'Humains.
 
