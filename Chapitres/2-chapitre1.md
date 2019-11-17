@@ -1,6 +1,5 @@
-##Déterminer quel est la doctrine qui enseigne que les Voies provisoires et absolues mènent au même but##
+## Déterminer quel est la doctrine qui enseigne que les Voies provisoires et absolues mènent au même but
 *T2514_.79.0011b13 / 3-6*
-
 Celui qui désire entrer dans ce Grand Véhicule, suprême, très secret et unificateur, doit pour ce faire développer le Coeur de Prajna et pratiquer les trois mystères.
 
 Si un homme ou une femme de bonne famille franchit le seuil de cet enseignement ne serait-ce qu'un moment, les généraux des 84000 soldats de la souillure mèneront leurs troupes à la soumission, les 160 brigands de l'illusion s'enfuiront avec leurs complices, les quadruples ou octuples transgressions seront emportées par le vent et les mers agitées des 3 ou 5 obstacles seront asséchées.
