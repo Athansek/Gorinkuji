@@ -1,7 +1,9 @@
 # Postface
-Ce texte contient des instructions données durant le Kanjo. Néanmoins le non-initié peut recevoir ce traité à condition d'être guidé par un Maître ayant reçu la transmission de la Loi. Le sujet de grande importance est le sens secret des cinq organes. Pratiquez et étudiez bien.
+* T2514_.79.0022c13*
 
-Après la rédaction de cet ouvrage je suis entré en Samadhi. Quand soudain Hôshôbô Kyôjun m'apparut et il dit:
->"Une fois le Koronzan écroulé on voit qu'il est fait de roches de métal. Que l'on pratique le Samadhi de Dainchi Nyôrai ou celui de Amida, Sages et sots sont tous non-duels. Je suis un vieil habitant du Ôgon sekkai et vous êtes un nouveau venu au Mitsugon Jodô. En sortant de la grande forêt d'arbres Enbu aurons nous un parfum différent?"
+Ce texte contient des instructions qui m'ont été transmises durant le Kanjo. Cependant, le non-initié peut recevoir ce traité à condition d'être guidé par un Maître ayant reçu la Transmission de la Loi. Le sujet de grande importance est le système subtil [秘義](Higi) des Cinq vases [五藏](Gozô). Pratiquez et étudiez bien.
 
-Ayant terminé de parler,  il disparut comme s'il se fut agi d'une illusion. Sans en comprendre la raison, je me mis à pleurer et à éprouver de la gêne. Contemplant soudain les marches du Mitsugon je réalisais la fin du samsara.
+Après avoir écrit ce traité, j'entrais en Samadhi. Un avatar [化現](Kegen) de Hôshô [寶生] /bô/ m'apparut et dit:
+>"Que le mont Konron [崑崙] s'effondre et l'on ne peut distinguer métal et pierre. Que l'on pratique le Samadhi de Dainchi Nyôrai ou celui d'Amida, Sages et sots ne pas deux. Je suis ancien dans la foule du Ôgon sekkai et vous êtes un nouveau venu au Mitsugon Jodô. Au sortir d'une forêt de Champaka[瞻蔔](Senpuku) aurons nous un parfum différent?"
+
+Ayant terminé de parler, il disparut comme s'il se fut agi d'une illusion. Sans en comprendre la raison, je me mis à pleurer, j'éprouvais de la honte. Je réalisais alors que j'étais déjà en Mitsugon. je sus que j'avais déjâ tranché la racine des naissances et des morts.
