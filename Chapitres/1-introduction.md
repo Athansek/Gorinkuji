@@ -1,4 +1,4 @@
-##Introduction##
+## Introduction##
 *T2514_.79.0011a17/1-2*
 
 A mon humble avis, le Mandala des 5 Roues et celui du Mantra d'Amida Nyôrai à 9 syllabes sont respectivement l'expérience intérieure du Grand Souverain Dainichi Nyôrai et la plus profonde intention de l'Honoré des Mondes Amida. Ils sont l'Accés à l'atteinte de l'Eveil sans supérieur en cette vie et l'unique vrai moyen de l'obtention de la renaissance dans la Terre-pure.
