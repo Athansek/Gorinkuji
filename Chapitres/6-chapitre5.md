@@ -1,4 +1,4 @@
-##Une seule pratique en accompli plusieurs##
+## Une seule pratique en accompli plusieurs
 C'est avoir une grande révérence pour la Sagesse et les Voeux de Dainichi Nyôrai que d'avoir un Foi profonde dans les Voeux d'Amida NyôraiDe plus ce n'est pas faire preuve d'hétérodoxie. Le maître de maison de  VaiΩalΔ, and VaidehΔ, est né ence corps dans la Terre-Pure d'Amida. Tandis que Ryûmyo et Dharmapala s'attendaient a y renaître.
 
 Question : Quels sont les vœux qui permettent au Gyôja d'accomplir la renaissance dans la Terre-Pure au moyen de la récitation intensive et des pratique mystériques ?       
