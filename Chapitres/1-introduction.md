@@ -1,5 +1,5 @@
 # Traité ésotérique sur les cinq roues et les neuf lettres en un volume
-*aussi appelé "Méditation secrète sur l'Eveil inconditionnel par la naissance dans la Tere-pure" * 
+*aussi appelé "Méditation secrète sur l'Eveil inconditionnel par la naissance dans la Tere-pure"* 
 
 ## Introduction
 *T2514_.79.0011a17/1-2*
