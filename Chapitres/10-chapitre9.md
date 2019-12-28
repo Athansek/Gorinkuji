@@ -1,7 +1,17 @@
-##L'Enseignement sur les capacités de ceux à qui l'on doit enseigner##
-Il y’a deux sortes personnes a convertir: Ceux nés dans la Terre-pure dans ce corps et ceux qui y renaissent immédiatement après leur mort. La première catégorie se scinde en deux : celle de ceux qui naissent dans la Terre-pure dans ce corps et ont de grandes capacités et celle ce ceux qui naissent dans la Terre-pure après la mort et ont peu de capacités. De même, chacune de ces sous-catégories est divisées en deux : les vifs et les lents d’esprit.
+## Sur les capacités de ceux à qui l'on doit enseigner
+Il y’a deux sortes personnes d'enseignés:
+- Ceux nés dans la Terre-pure dés ce corps (*Genshin*); 
+- Ceux qui renaitront dans leur prochaine existence. 
 
-Ceux qui sont vifs d’esprit entrent directement dans le Samadhi de l’ « Essence du Hokkai », contemplent largement le Hokkai et atteignent Sokushinjobutsu: ils réalisent que tous les Êtres sont Eveillés de manière innée et qu’ils forment la Grande Bodaishin de Fugen Bosatsu. Leur objet de méditation est l' « A » inné et la Sapience originellement non-née est leur Essence. Sujet et Objet sont d’une seule essence et l’Esprit un seul et même royaume très pur. Réaliser le principe originellement non-né c'est couper la Voie de la Parole. Réaliser le principe originellement non-né est se libérer de tous les péchés. Réaliser le principe originellement non-né est savoir que les causes karmiques ne peuvent être appréhendées. Réaliser le principe originellement non-né est comprendre que l’Égalité avec l’Espace ne peut être appréhendée.
+La première catégorie se scinde en deux :
+- Celle de ceux qui renaissent dés ce corps et ont de grandes capacités (*Daiki*);
+- Celle de ceux qui renaissent dés ce corps et ont de faibles capacités. 
+
+De même, chacune de ces sous-catégories est divisées en deux : les vifs et les lents d’esprit (*Ridon*).
+
+Ceux qui ont de grandes capacités et l'esprit vif entrent dans le Samadhi de l’ « Entrée dans la nature essentielle du Hokkai » (*Nyû Hôkkai Taishô*), embrassant largement le Hokkai ils atteignent Sokushinjobutsu. Ils réalisent ainsi que la nature de essentielle de tous les Etres est l'Eveil et qu’ils reposent dans la Grande Bodaishin de Fugen Bosatsu. 
+
+AAAAAAAA  Leur objet de méditation est l' « A » inné et la Sapience originellement non-née est leur Essence. Sujet et Objet sont d’une seule essence et l’Esprit un seul et même royaume très pur. Réaliser le principe originellement non-né c'est couper la Voie de la Parole. Réaliser le principe originellement non-né est se libérer de tous les péchés. Réaliser le principe originellement non-né est savoir que les causes karmiques ne peuvent être appréhendées. Réaliser le principe originellement non-né est comprendre que l’Égalité avec l’Espace ne peut être appréhendée.
 
 Quand on réalise le principe de la Vacuité, que l’on se rend compte que le Sujet et l’Objet sont de même Essence, c'est-à-dire que le sujet de la contemplation est l’Esprit indivis des Causes et que l’Objet de la contemplation est la Sphère Unique des caractéristiques de la Syllabe, On atteint alors Sokushinjobutsu. C’est le samadhi des « Grande facultés et de la large contemplation ».
 
