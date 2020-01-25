@@ -9,4 +9,4 @@ La première catégorie se scinde en deux :
 
 De même, chacune de ces sous-catégories est divisées en deux : les vifs et les lents d’esprit (*Ridon*).
 
-Ceux qui ont de grandes capacités et l'esprit vif entrent dans le Samadhi de l’ « Entrée dans la nature essentielle du Hokkai » (*Nyû Hôkkai Taishô*), embrassant largement le Hokkai ils atteignent Sokushinjobutsu. Ils réalisent que tous les êtres sont des *Honnusatta* (êtres éternels) et qu'en tant que tel ils reposent dans la Grande Bodaishin de Fugen Bosatsu, le corps de l'A (en tant que support de méditation) éternel, le corps du Chercheur incréé (79.0021c10).
+Ceux qui ont de grandes capacités et l'esprit vif entrent dans le Samadhi de l’ « Entrée dans la nature essentielle du Hokkai » (*Nyû Hôkkai Taishô*), embrassant largement le Hokkai ils atteignent Sokushinjobutsu. Ils réalisent que tous les êtres sont l'Eternel (*Honnusatta*: le Sattva fondamentalement existant) et qu'en tant que tel ils reposent dans la Grande Bodaishin de Fugen Bosatsu, le corps de l'A (en tant que support de méditation) éternel, le corps du Chercheur incréé (79.0021c10).
